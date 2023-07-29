@@ -104,3 +104,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid705267658">16.[0] \<pid:705267658\> 2023-07-27 17:03:25 by 夜静銮铃</span>
 说散草会被删，散纳会吗![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
 
+----
+
+##### <span id="pid705279728">17.[0] \<pid:705279728\> 2023-07-27 17:54:49 by 锋叶琉璃</span>
+>[jump](#pid705267658) 夜静銮铃(2023-07-27 17:03) 说: 
+>
+>说散草会被删，散纳会吗![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+
+散草不会，但是战犯和囚犯会，这是不看举报情况下，实际上你表达下类似意思容易吃举报然后被删![壁咚](https://img4.nga.178.com/ngabbs/post/smile/a2_32.png)
+

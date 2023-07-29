@@ -280,3 +280,23 @@ lin ni？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ##### <span id="pid705237254">36.[0] \<pid:705237254\> 2023-07-27 14:48:58 by 愿望的樱花233</span>
 哎，豆乳玉麒麟![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
 
+----
+
+##### <span id="pid705364031">37.[0] \<pid:705364031\> 2023-07-28 02:18:51 by CookiNeko</span>
+第一次刷到老哥的帖子没忍住买了杯奶茶，现在又刷到了又想买奶茶了![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
+
+----
+
+##### <span id="pid705364708">38.[0] \<pid:705364708\> 2023-07-28 02:29:26 by 疯子二太郎</span>
+>[jump](#pid705061814) 冷泠棱凌(2023-07-26 18:36) 说: 
+>
+>官方视角就是“不可说”，一旦大慈树王四个字出口禁忌知识将会继续蔓延![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+>但那样又关我什么事呢。
+
+其实这个理由也很牵强![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，照这么说来任何被禁忌知识沾染过的事物都永远不能被提及，而实际上人家赤王天天被鞭尸，单纯告诉实情没有任何问题，禁忌知识在树王身上，又不在“大慈树王”这个名字上
+
+----
+
+##### <span id="pid705364836">39.[0] \<pid:705364836\> 2023-07-28 02:31:48 by 扶光む</span>
+插个题外话，我感觉茶百道的豆乳米麻薯也很好~~喝~~吃![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，料真的蛮足的，跟豆乳玉麒麟好像味道差不多。  睡醒了准备去点杯铁观音奶冻尝尝![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

@@ -115,3 +115,47 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid705240523">18.[0] \<pid:705240523\> 2023-07-27 15:04:37 by 巳龚蓝丑郝芦</span>
 ![img](./18_1a8f5ape.jpg)
 
+----
+
+##### <span id="pid705327234">19.[0] \<pid:705327234\> 2023-07-27 21:53:07 by kunizu</span>
+模因污染：猛干哥你在不在对面……偷偷看着我……
+
+----
+
+##### <span id="pid705449530">20.[0] \<pid:705449530\> 2023-07-28 13:41:52 by 卜鱼</span>
+我也是，我昨天看到这破事再看看星铁的软件图标，瞬间就有一股难言的恶心返上来，我靠我真受不了，大小月卡都氪了也没上线，当即卸载，现在纯纯看乐子了。
+
+----
+
+##### <span id="pid705452105">21.[0] \<pid:705452105\> 2023-07-28 13:55:18 by 音羽城</span>
+>[jump](#pid705208045) Liciamenoon(2023-07-27 12:25) 说: 
+>
+>崩铁我现在就被符玄吊着，等抽到她可能也不知道该怎么玩下去了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)不过这重要吗，可能只有我会觉得重要吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+你就不怕到时候猛干哥跳出来说你老婆是c罗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705452375">22.[0] \<pid:705452375\> 2023-07-28 13:56:46 by 剑筑师と書記官</span>
+>[jump](#pid705229547) 須賀悠衣(2023-07-27 14:11) 说: 
+>
+>你版那么多止氪圣经都不如猛干哥几句典，还不快谢谢猛干哥![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+李猛干这波让我对除了理查外的一切带文案的游戏都出脑了
+我现在对我推的爱全是靠xp和旧粮维持了大概![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705464606">23.[1] \<pid:705464606\> 2023-07-28 14:59:14 by Liciamenoon</span>
+>[jump](#pid705452105) 音羽城(2023-07-28 13:55) 说: 
+>
+>你就不怕到时候猛干哥跳出来说你老婆是c罗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+没事，符玄不喜欢健身练肌肉肯定不是C罗，就算是梅西我也认了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+~~随便说说的不要真的是梅西啊！~~
+
+----
+
+##### <span id="pid705464962">24.[0] \<pid:705464962\> 2023-07-28 15:01:07 by Seeyoupelos</span>
+mhy能不能爆一个美少女编剧中和一下![妮可妮可妮](https://img4.nga.178.com/ngabbs/post/smile/a2_18.png)
+

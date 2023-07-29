@@ -144,3 +144,14 @@ Hard-f**king Li![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 是的，一遇上太君mhy就成短道速滑锦标赛冠军了，我看完那个简直乐死![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 ![img](./21_3619d03k.gif)
 
+----
+
+##### <span id="pid705287351">22.[0] \<pid:705287351\> 2023-07-27 18:26:39 by Jason794</span>
+![img](./22_cb07184.jpeg)
+好消息
+
+----
+
+##### <span id="pid705299989">23.[0] \<pid:705299989\> 2023-07-27 19:26:33 by ZX_hysh</span>
+坛友别再骗我玩原神了，你们再发这个贴我真的会想改名limengan去过邀约的。![img](./23_3283bd31.png)
+

@@ -328,3 +328,39 @@ PC系数去年11月就涨了，那时候可不需要营造什么假象
 ![img](./42_51c347ji.png)
 不用过两天了已经成了![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
 
+----
+
+##### <span id="pid705323944">43.[1] \<pid:705323944\> 2023-07-27 21:38:00 by CUCUK</span>
+>[jump](#pid705273992) 眼中血(2023-07-27 17:29) 说: 
+>
+>![img](./42_51c347ji.png)
+>不用过两天了已经成了![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
+
+第一个不是二次元开放世界
+第二个不是二次元
+第五个不是开放世界
+二次元开放世界还是原宝登顶![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)!
+
+----
+
+##### <span id="pid705324328">44.[0] \<pid:705324328\> 2023-07-27 21:40:08 by fealib</span>
+>[jump](#pid705248783) 池霜丶(2023-07-27 15:43) 说: 
+>
+>其实就是氪外观，主要![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)只不过这游戏有高稀有度外观，还只能抽奖，运气不好一个保底两三千块就出去了，我和情缘今天吃了10个保底，倒霉到家![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png) 主要今天因为在外面还不能用电脑冲，用手机冲了几十单，累死我了
+
+大佬你这是要天赏全收么![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705325195">45.[0] \<pid:705325195\> 2023-07-27 21:43:42 by 冬虫夏草花花茶</span>
+二刺猿是acgn，《逆水寒》好歹是个n，怎么不是二刺猿了？![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid705343718">46.[0] \<pid:705343718\> 2023-07-27 23:31:22 by 池霜丶</span>
+>[jump](#pid705324328) fealib(2023-07-27 21:40) 说: 
+>
+>大佬你这是要天赏全收么![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)别说了，今天真倒霉到家，全程保底加保底石头，我现在逮着心意在一顿狂骂
+

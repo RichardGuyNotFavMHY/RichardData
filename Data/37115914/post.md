@@ -1186,3 +1186,17 @@ t0和下水道是谁？你不知道？![汗](https://img4.nga.178.com/ngabbs/pos
 这帖子没必要发里茶吧![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)等一个锁隐
 不过我觉得对于公共交通着装限制完善一下也挺好的
 
+----
+
+##### <span id="pid705536933">170.[0] \<pid:705536933\> 2023-07-28 21:28:52 by 哦婆婆DSAD</span>
+>[jump](#pid704523898) 蓝色流星(2023-07-24 13:09) 说: 
+>
+>很担心老人会被仙攻击![冷](https://img4.nga.178.com/ngabbs/post/smile/ac5.png)
+
+老毕登连父母都骂，还要人脱衣服怎么不说呢![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid705550914">171.[0] \<pid:705550914\> 2023-07-28 23:03:01 by 沈歇</span>
+![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)我朋友给我转述的版本怎么是王耀cos和八重cos站在一起挨的骂![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)她说王耀穿的是经典公式服也就是那套绿色中山装，我听了以为是大爷看到中山装和和服站一起ptsd……![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)~~所以有没有另一个cos~~
+

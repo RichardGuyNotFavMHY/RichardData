@@ -71,3 +71,52 @@ nga里的大贤者人设图可比黑丝小男孩好看，我建议所有小男�
 两个版本任君挑选![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)![img](./10_e9fbe8hg.jpg)![img](./10_4f8424sg.jpg)
 我们还有成男版![有何贵干](https://img4.nga.178.com/ngabbs/post/smile/a2_11.png)![img](./10_cd1a92sg.jpg)
 
+----
+
+##### <span id="pid705349371">11.[0] \<pid:705349371\> 2023-07-28 00:11:19 by 班班班班尼特</span>
+>[jump](#pid705205002) 大碗番茄炒鸡拌饭(2023-07-27 12:10) 说: 
+>
+>两个版本任君挑选![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)![img](./10_e9fbe8hg.jpg)![img](./10_4f8424sg.jpg)
+>我们还有成男版![有何贵干](https://img4.nga.178.com/ngabbs/post/smile/a2_11.png)![img](./10_cd1a92sg.jpg)
+
+讲道理成男版有点帅的
+
+----
+
+##### <span id="pid705350389">12.[2] \<pid:705350389\> 2023-07-28 00:18:34 by 淮水东边旧时月</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)yysy大贤者要真长楼上那样我觉得会有阿扎尔嬷(认真的)
+
+----
+
+##### <span id="pid705351404">13.[0] \<pid:705351404\> 2023-07-28 00:25:54 by yddjhjh</span>
+长这样人气更高![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+![img](./13_7f48absg.jpg)
+
+----
+
+##### <span id="pid705356262">14.[0] \<pid:705356262\> 2023-07-28 00:56:04 by cecial</span>
+>[jump](#pid705205002) 大碗番茄炒鸡拌饭(2023-07-27 12:10) 说: 
+>
+>两个版本任君挑选![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)![img](./10_e9fbe8hg.jpg)![img](./10_4f8424sg.jpg)
+>我们还有成男版![有何贵干](https://img4.nga.178.com/ngabbs/post/smile/a2_11.png)![img](./10_cd1a92sg.jpg)
+
+还有成男版哈哈哈哈
+
+----
+
+##### <span id="pid705356575">15.[0] \<pid:705356575\> 2023-07-28 00:58:20 by DxhSN2022</span>
+>[jump](#pid705351404) yddjhjh(2023-07-28 00:25) 说: 
+>
+>长这样人气更高![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>![img](./13_7f48absg.jpg)
+
+跟汉堡王联动的角色有着落了。
+
+----
+
+##### <span id="pid705362024">16.[0] \<pid:705362024\> 2023-07-28 01:48:27 by 霞云</span>
+>[jump](#pid705205002) 大碗番茄炒鸡拌饭(2023-07-27 12:10)说:
+>[quote][pid=705203071,37154331,1]Reply[/pid] <b>Post by [uid=62677945]Scaramer[/uid] (2023-07-27 12:02):</b><br/><br/>老哥有图吗[s:ac:喘][/quote]两个版本任君挑选[s:ac:闪光][img]https://img.nga.178.com/attachments/mon_202307/27/l2Q2s-bx82K1dT3cSu0-hg.jpg.medium.jpg[/img][img]https://img.nga.178.com/attachments/mon_202307/27/l2Q2s-h4olK1iT1kShl-sg.jpg.medium.jpg[/img]<br/>我们还有成男版[s:a2:有何贵干][img]https://img.nga.178.com/attachments/mon_202307/27/l2Q2s-aycsK1dT1kSe8-sg.jpg.medium.jpg[/img]
+
+好好好，大贤者你不要不识好歹速速与我结婚![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
