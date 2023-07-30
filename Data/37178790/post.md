@@ -164,3 +164,18 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 到时候再回来呗，我就打算等想要的角色上线了再回来
 在那之前我不打算浪费时间在无聊的版本
 
+----
+
+##### <span id="pid705630861">22.[0] \<pid:705630861\> 2023-07-29 12:48:11 by ThedesAlizes</span>
+>[jump](#pid705602624) 来自非洲大草原的16(2023-07-29 10:04) 说: 
+>
+>你头像原型是李猛干![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+啥情况？？？![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)![惊](https://img4.nga.178.com/ngabbs/post/smile/ac27.png)
+
+----
+
+##### <span id="pid705632074">23.[0] \<pid:705632074\> 2023-07-29 12:55:04 by 辰砂之纺锤</span>
+有道理，这就上号去换……
+哦原来我已经卸掉了啊那没事了![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
+

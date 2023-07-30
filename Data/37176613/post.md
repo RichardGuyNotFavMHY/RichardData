@@ -109,3 +109,131 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 快端上来罢，我已经等不及看新的乐子了
 
+----
+
+##### <span id="pid705657588">20.[0] \<pid:705657588\> 2023-07-29 15:26:36 by salmonequation</span>
+>[jump](#pid705562242) BeTAZzz(2023-07-29 00:29) 说: 
+>
+>押一波周一有大药，赢了茶百道输了去夜跑![上](https://img4.nga.178.com/ngabbs/post/smile/ac2.png)
+
+这下不用等到周一了哈哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+----
+
+##### <span id="pid705657881">21.[0] \<pid:705657881\> 2023-07-29 15:28:18 by 纸游W</span>
+>[jump](#pid705657588) salmonequation(2023-07-29 15:26) 说: 
+>
+>这下不用等到周一了哈哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+这夏活真的太顶了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705657885">22.[0] \<pid:705657885\> 2023-07-29 15:28:20 by 米拉库尔Tou</span>
+算得真准
+
+----
+
+##### <span id="pid705657903">23.[0] \<pid:705657903\> 2023-07-29 15:28:27 by Grisha</span>
+你就是预言家？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705658042">24.[2] \<pid:705658042\> 2023-07-29 15:29:11 by 清源风起时</span>
+大师 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705658096">25.[0] \<pid:705658096\> 2023-07-29 15:29:31 by ElegySoul</span>
+大师我悟了。
+现在，谁才是真正的瓜版![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid705658179">26.[0] \<pid:705658179\> 2023-07-29 15:29:57 by 看看其他的</span>
+大师快算一下下一次大药是什么时候![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705658243">27.[0] \<pid:705658243\> 2023-07-29 15:30:19 by 药师鬼</span>
+大师，刀了！![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+----
+
+##### <span id="pid705658462">28.[0] \<pid:705658462\> 2023-07-29 15:31:35 by l秦珺媛</span>
+白狼王自爆带走楼主![异议](https://img4.nga.178.com/ngabbs/post/smile/a2_47.png)
+
+----
+
+##### <span id="pid705658836">29.[0] \<pid:705658836\> 2023-07-29 15:34:00 by 青禾木</span>
+发生了什么？
+
+----
+
+##### <span id="pid705658934">30.[0] \<pid:705658934\> 2023-07-29 15:34:34 by 我冲我自己</span>
+还真是![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705659411">31.[0] \<pid:705659411\> 2023-07-29 15:37:13 by 江鹤疏</span>
+我超 还真是![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705659574">32.[0] \<pid:705659574\> 2023-07-29 15:38:16 by 等把美又强的剑</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)预言家是吧。
+
+----
+
+##### <span id="pid705660994">33.[0] \<pid:705660994\> 2023-07-29 15:47:08 by tmp216</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)药效太猛惹
+
+----
+
+##### <span id="pid705661864">34.[0] \<pid:705661864\> 2023-07-29 15:52:36 by Gdygfdqqqq</span>
+看人真准![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705662020">35.[1] \<pid:705662020\> 2023-07-29 15:53:39 by 今锁朱楼</span>
+言灵师是吧，能不能明天再发一遍![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705662091">36.[0] \<pid:705662091\> 2023-07-29 15:54:07 by Wincyl_</span>
+预言家是吧，今晚就刀你![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705662199">37.[1] \<pid:705662199\> 2023-07-29 15:54:54 by 道仰</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)带师您这神通有CD吗，没有的花多发几个连发吧我不介意，越大越好最好能把mhy整死
+
+----
+
+##### <span id="pid705662358">38.[0] \<pid:705662358\> 2023-07-29 15:55:53 by 537464先生</span>
+woc！大预言家！
+预言一下下一个瓜的时间吧大师![异议](https://img4.nga.178.com/ngabbs/post/smile/a2_47.png)
+
+----
+
+##### <span id="pid705662421">39.[0] \<pid:705662421\> 2023-07-29 15:56:19 by Inquisit</span>
+每天都有新乐子![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid705662709">40.[0] \<pid:705662709\> 2023-07-29 15:58:08 by origird</span>
+无聊时逛逛里茶馆，每天都有新乐子。
+
+我在这买房了。
+
+----
+
+##### <span id="pid705700200">41.[1] \<pid:705700200\> 2023-07-29 19:26:37 by ZFBXBD</span>
+你是先知吧？
+来来来给你刀了，你发完这条才五六个点就来活了。
+
+----
+
+##### <span id="pid705732378">42.[0] \<pid:705732378\> 2023-07-29 22:20:35 by 飞向记忆深处</span>
+预言家美元美元![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

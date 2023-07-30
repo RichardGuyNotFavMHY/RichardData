@@ -12,3 +12,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid705599708">1.[1] \<pid:705599708\> 2023-07-29 09:46:01 by UID3563849</span>
 ![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)你为什么寄希望于他的家长？有没有可能他们一家都不是好东西
 
+----
+
+##### <span id="pid705632791">2.[0] \<pid:705632791\> 2023-07-29 12:59:15 by 朝云无觅</span>
+小草能不能学学，把xx关鸟笼里  ![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid705633005">3.[0] \<pid:705633005\> 2023-07-29 13:00:38 by 友项</span>
+熊孩子背后都是有熊家长在撑腰，你还指望啥![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

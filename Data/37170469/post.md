@@ -420,3 +420,13 @@ eva的设定用在老eva写后冷战日本年轻人的迷茫还挺合适的，�
 让二次元去面对现实，本来就不是很现实吧![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png) 
 能坦然面对现实的人还会沉迷二次元吗？
 
+----
+
+##### <span id="pid705636328">57.[0] \<pid:705636328\> 2023-07-29 13:20:08 by meterorite·陨星</span>
+>[jump](#pid705525045) lleevvin(2023-07-28 20:10) 说: 
+>
+>那不小资的作品，现在能在哪里看到呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+看已经板上钉钉的死书![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+自然科学不会骗你
+

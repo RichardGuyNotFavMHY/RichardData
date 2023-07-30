@@ -110,3 +110,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 这首页角色，有说法的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 散草久(岐忍)九(条裟罗)
 
+----
+
+##### <span id="pid705631904">15.[0] \<pid:705631904\> 2023-07-29 12:54:04 by 憨驴xcw</span>
+印象中lofter是有的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

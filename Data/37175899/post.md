@@ -250,3 +250,18 @@ mengan是兵是将大伙都清楚
 ##### <span id="pid705614283">39.[0] \<pid:705614283\> 2023-07-29 11:14:01 by 奇迹沼</span>
 ![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)感觉楼主，填问卷去了
 
+----
+
+##### <span id="pid705631804">40.[0] \<pid:705631804\> 2023-07-29 12:53:31 by 烛光里的奶妈</span>
+>[jump](#pid705574898) 文湫(2023-07-29 02:36) 说: 
+>
+>谢邀，猛干哥的典已经活学活用了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+>![img](./37_e3c4eeg0.jpg)
+
+括弧笑，你是不是也看宿o![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705642751">41.[0] \<pid:705642751\> 2023-07-29 13:57:04 by 星期八的虚</span>
+乐，有好范文复制黏贴阴阳怪气米忽悠那这次就不选2008了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

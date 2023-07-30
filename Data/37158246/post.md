@@ -373,3 +373,14 @@ ao3比较好查，刚去看了，单人前十吧，被前二的公和钟倍杀
 破案了，散兵是湾湾区特供![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 联想到猛干哥的“国中生”突然理解一切
 
+----
+
+##### <span id="pid705678868">54.[0] \<pid:705678868\> 2023-07-29 17:35:39 by 天射星</span>
+>[jump](#pid705280608) 天射星(2023-07-27 17:57) 说: 
+>
+>可是日服流水过不了漫画(类比抖音)登不了顶耶![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>另外再说个好消息，散兵只有台湾区登顶了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>全线暴死只有毒区好评，这要是敢再吹海外人气我觉得得拷打拷打是不是有50万了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+实在是太乐了，果然没过两天就有50w出来当典型了![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)
+

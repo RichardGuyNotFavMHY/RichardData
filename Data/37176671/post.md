@@ -437,3 +437,43 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid705609271">65.[0] \<pid:705609271\> 2023-07-29 10:45:30 by 翊chain</span>
 为什么都觉得散解会因为林尼破防，我寻思她们复刻都爆不出米还有那个惹人发笑的拼夕夕大屏，白嫖又没啥负担，抛弃旧爱找新欢不是洒洒水的事，我就好奇她们脱粉回踩然后再被破防的样子![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![img](./65_024405g0.jpg)
 
+----
+
+##### <span id="pid705626912">66.[0] \<pid:705626912\> 2023-07-29 12:25:28 by 多托雷铁血单推人</span>
+>[jump](#pid705607843) 渐行渐远ii(2023-07-29 10:36) 说: 
+>
+>我觉得散解是想殖民然后拉林尼厨组复联对抗宅男(散黑)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)之前在林尼超话看见过散解呼吁林尼厨不要“内讧”因为有的林尼厨觉得节奏大都是因为散兵整得很多人对小男孩有意见，所以想切割散厨![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我只能说你们做的太对了，坚持啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  (然后不管是超话还是厕所就汇聚了一群紫色小猫头像，枫丹厕直接禁了草国相关话题)
+
+3.3那会儿我混了一段时间多托雷的超话，还看见三阶在里面呼吁大家都是反派厨不要内讧呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)就编剧整那出“嫉妒纯白人偶”的好活，到底凭什么要跟她们统一战线啊，我浅琢磨了一下，博士厨里主要的应该分三个成分，一类就是所谓的愚人众厨反派厨~~所以你家散散都背弃愚人众进教令院当高层了你到底在厨什么~~，一类是切割散兵和流浪者的，还有一类就是因为剧情讨厌散兵因为散解骂博士讨厌散解的，比如我![囧](https://img4.nga.178.com/ngabbs/post/smile/a2_24.png)我只想看博士荡秋千烧树淦碎散兵然后整个切片进池给我玩弄然后本人死翘翘![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)
+
+----
+
+##### <span id="pid705627029">67.[0] \<pid:705627029\> 2023-07-29 12:26:10 by bobocc9000</span>
+那又有乐子看了，岂不是爽爆
+
+----
+
+##### <span id="pid705629554">68.[0] \<pid:705629554\> 2023-07-29 12:40:45 by ThedesAlizes</span>
+我对4.0流水爆死持悲观态度![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)林尼梦里挺强的，而且还有另一个强力角色陪跑![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+----
+
+##### <span id="pid705630275">69.[0] \<pid:705630275\> 2023-07-29 12:44:56 by rtg？</span>
+>[jump](#pid705629554) ThedesAlizes(2023-07-29 12:40) 说: 
+>
+>我对4.0流水爆死持悲观态度![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)林尼梦里挺强的，而且还有另一个强力角色陪跑![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+我梦到低命打不过种子![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705630569">70.[0] \<pid:705630569\> 2023-07-29 12:46:30 by Lucky Luk</span>
+其他已经成赔钱货了，而黑丝小男孩如果是下一个要捧的话，某些top粉确实会转移目标。![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+
+----
+
+##### <span id="pid705634538">71.[0] \<pid:705634538\> 2023-07-29 13:09:51 by Fablet</span>
+巫妖王从散变成林有什么意义吗……
+对我而言，这个巫妖王的立绘不光越来越丑，还越来越倾向于与国际接轨(指zzzq)
+如果你只是想看脱粉回踩垫子散，那确实有意义，但是若你想看到天罚，那就没意义了。
+
