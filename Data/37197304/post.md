@@ -172,3 +172,65 @@ P站上有很多r18内容。。。。。2次元r18创作，一个p站，一个i�
 
 更绷不住的难道不是美团云原神每天3h免费时长？虽然画质低了点![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid705942092">27.[0] \<pid:705942092\> 2023-07-31 02:47:12 by _Rosaline_ToT</span>
+前几天用QQ浏览器，每一次开屏，都是星铁广告，我还特地重启好几次看看，真的每一次都是哈哈哈哈
+
+----
+
+##### <span id="pid705946247">28.[0] \<pid:705946247\> 2023-07-31 04:50:52 by CUCUK</span>
+美团都有，小米商店算啥![计划通](https://img4.nga.178.com/ngabbs/post/smile/ac41.png)
+![img](./28_64e7df3i.jpg)
+
+----
+
+##### <span id="pid705946680">29.[0] \<pid:705946680\> 2023-07-31 05:15:20 by samiyako</span>
+依旧是最傻逼的那种文案
+路人谁tm懂啥叫3.8，啥叫卡池，上线有啥意义，能提升生活品质？
+![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid705950180">30.[0] \<pid:705950180\> 2023-07-31 07:18:12 by 转生三周目</span>
+![img](./30_9ca850av.jpg)
+确实有![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)这是小米的应用商店
+
+----
+
+##### <span id="pid705950582">31.[0] \<pid:705950582\> 2023-07-31 07:24:18 by 海上飘丝瓜</span>
+>[jump](#pid705901211) scoutqq(2023-07-30 21:23) 说: 
+>
+>![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)应该是蓝白的pixiv,一个产粮交流网,啥时候能看到阿米在粉色APP买量啊...救救....
+
+b站不是每天都在广告轰炸吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705950622">32.[0] \<pid:705950622\> 2023-07-31 07:24:55 by 紧张就缩边边</span>
+别尬黑，是钱多得用不完，策划为了完成指标投着玩儿的。![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid705951943">33.[0] \<pid:705951943\> 2023-07-31 07:43:28 by 透明的视野</span>
+我爸妈还问我手机广告里频繁出现的这个崩坏：星穹铁道是啥东西呢![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)推广都买到从不玩手游的中年人那里了
+
+----
+
+##### <span id="pid705964343">34.[0] \<pid:705964343\> 2023-07-31 09:11:58 by BoarMkI</span>
+哎呀，宅男自闭宣发是这样的嘛
+
+----
+
+##### <span id="pid705964856">35.[0] \<pid:705964856\> 2023-07-31 09:14:31 by 他小炒肉谁啊</span>
+说出来你也许不信，米_甚至在360软件管家买了广告![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705975598">36.[0] \<pid:705975598\> 2023-07-31 10:05:47 by scoutqq</span>
+>[jump](#pid705950582) 海上飘丝瓜(2023-07-31 07:24) 说: 
+>
+>b站不是每天都在广告轰炸吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)刚想说不是你想的那个,仔细一想好像叫哔站也没错…
+

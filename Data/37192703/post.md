@@ -97,3 +97,40 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 猛干这件事一出，我都懒得对线了
 你怎么证明对面不是猛干哥同事甚至本人
 
+----
+
+##### <span id="pid705930992">12.[0] \<pid:705930992\> 2023-07-31 00:33:25 by Mèi</span>
+>[jump](#pid705825555) 月小炎(2023-07-30 14:05) 说: 
+>
+>我想说坛友们还是太爱mhy了
+>猛干这件事一出，我都懒得对线了
+>你怎么证明对面不是猛干哥同事甚至本人
+
+![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)如果他看了更满足心情，然后更加发癫写剧情，这种事真的很爽的![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid705932265">13.[0] \<pid:705932265\> 2023-07-31 00:44:19 by Yau1968</span>
+这楼里什么俄罗斯套娃![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705969557">14.[0] \<pid:705969557\> 2023-07-31 09:37:51 by 烛光里的奶妈</span>
+发情水是不是可以补一句：你老婆原型是C罗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705970267">15.[1] \<pid:705970267\> 2023-07-31 09:41:00 by momookyk</span>
+>[jump](#pid705817697) 格兰登(2023-07-30 13:12) 说: 
+>
+>转了一圈，某B、某扑、某博没人给原提意见，怎么回事？![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
+>
+>屠龙术学会了，龙呢？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)经典下了一堆环境针对卡打META BEAT，结果发现根本遇不到
+
+----
+
+##### <span id="pid705982727">16.[1] \<pid:705982727\> 2023-07-31 10:36:42 by 绘麻厨</span>
+哈哈，我昨天才用猛干语录在散兵超话题干破防一个![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

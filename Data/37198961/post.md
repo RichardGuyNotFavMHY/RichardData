@@ -87,3 +87,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid705921404">13.[0] \<pid:705921404\> 2023-07-30 23:28:44 by 淮水东边旧时月</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)吊着厨力驱动的玩家呗，我是喜欢神里哥入坑的结果刚好错过他复刻卡池，现在等了快半年了还没复刻，说实话已经快失去耐心了
 
+----
+
+##### <span id="pid705928927">14.[0] \<pid:705928927\> 2023-07-31 00:17:27 by 银河外的水滴</span>
+应该是学的fgo，但fgo有新年福袋和周年庆福袋，还有新年期间连出多个人气限定池
+

@@ -272,3 +272,48 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid705912485">39.[0] \<pid:705912485\> 2023-07-30 22:33:36 by HuoHuohei</span>
 我想说，他们这个流程图是不是有点问题？
 
+----
+
+##### <span id="pid705938011">40.[0] \<pid:705938011\> 2023-07-31 01:41:26 by 隔壁的一只小鲸鱼</span>
+>[jump](#pid705861909) 甲贺石子柳农(2023-07-30 17:53) 说: 
+>
+>[url](https://tieba.baidu.com/p/8281764858?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.44.1.0&amp;st=1690710744&amp;is_video=false&amp;unique=9F939217E27A3681480072DE8DBD539C)
+>任何人没看过他们超话主持人争夺史我都会很伤心的![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)。比你游
+
+比原剧情有意思多了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705938475">41.[0] \<pid:705938475\> 2023-07-31 01:47:31 by tbiph9277</span>
+笑吐了草![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  不过有一说一，我不咋喜欢加你原的游戏群某种程度上就是因为这些所谓的审核，不过散兵这个确实是我看过最离谱的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705938586">42.[0] \<pid:705938586\> 2023-07-31 01:49:06 by 叶二</span>
+![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)![咦](https://img4.nga.178.com/ngabbs/post/smile/ac11.png)这是在干什么，到底什么人在加这样的群啊
+
+----
+
+##### <span id="pid705939325">43.[0] \<pid:705939325\> 2023-07-31 02:01:33 by MukamiRuki</span>
+>[jump](#pid705858617) 摆烂的鱼鱼(2023-07-30 17:35) 说: 
+>
+>不清楚，首次见于散槽吧，根据说法是散厨wb搞的？没查证过。
+
+这是真的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我曾经还没变成散黑的时候还看过几次散兵超话，里面几个宣群的都这样 要各种平台的自证![囧](https://img4.nga.178.com/ngabbs/post/smile/a2_24.png)
+
+----
+
+##### <span id="pid705940978">44.[0] \<pid:705940978\> 2023-07-31 02:30:24 by 来点乐子吧</span>
+>[jump](#pid705860051) 蔚昭(2023-07-30 17:44):
+
+那个传说中一个刷了500多条的就是她吧，现在是不是已经销号跑路了来着
+
+----
+
+##### <span id="pid705960029">45.[0] \<pid:705960029\> 2023-07-31 08:48:03 by 蔚昭</span>
+>[jump](#pid705940978) 来点乐子吧(2023-07-31 02:30) 说: 
+>
+>那个传说中一个刷了500多条的就是她吧，现在是不是已经销号跑路了来着
+
+是销号了，但是一个人刷500条的可能也不止一个![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

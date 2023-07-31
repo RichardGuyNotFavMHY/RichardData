@@ -54,3 +54,20 @@ lz啥情况啊，我也烧了好几天了，今天才退![哭笑](https://img4.n
 
 早日康复，发烧的时候就一直睡觉养着吧，等后期快好的时候可以看看《三伏》的实况(无jump scare，不咋吓人，消磨时间一绝![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png))
 
+----
+
+##### <span id="pid705959124">10.[0] \<pid:705959124\> 2023-07-31 08:42:45 by 缩小帽设定是神</span>
+>[jump](#pid705920392) 哒哒块(2023-07-30 23:22) 说: 
+>
+>传播负面信息本身就是在提高议价能力，你以为泥潭养着里版是为了啥![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+什么养猹自重![中枪](https://img4.nga.178.com/ngabbs/post/smile/ac3.png)
+
+----
+
+##### <span id="pid705960377">11.[0] \<pid:705960377\> 2023-07-31 08:50:10 by logicnnn</span>
+>[jump](#pid705920392) 哒哒块(2023-07-30 23:22) 说: 
+>传播负面信息本身就是在提高议价能力，你以为泥潭养着里版是为了啥![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+这不得让血牙酱来roll几个会员![img](./11_3283bd31.png)
+

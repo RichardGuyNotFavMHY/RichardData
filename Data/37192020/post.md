@@ -87,3 +87,35 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 然后是表示一种果奶、某个蓝绿厂、动画里跟ed对应的
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid705931249">15.[0] \<pid:705931249\> 2023-07-31 00:35:33 by Mèi</span>
+>[jump](#pid705805553) mimengan(2023-07-30 11:59) 说: 
+>
+>米叒和木之前也是违禁词，现在能用吗？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+米社可以用
+
+----
+
+##### <span id="pid705931338">16.[0] \<pid:705931338\> 2023-07-31 00:36:16 by Nimbus純水100</span>
+>[jump](#pid705813368) ak1212ak(2023-07-30 12:45) 说: 
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我最早知道这个词是表示imba、牛逼
+>然后是表示一种果奶、某个蓝绿厂、动画里跟ed对应的
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+奥斯卡皮亚斯特里(确信)
+
+----
+
+##### <span id="pid705932462">17.[0] \<pid:705932462\> 2023-07-31 00:46:02 by 道仰</span>
+>[jump](#pid705813368) ak1212ak(2023-07-30 12:45) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)我最早知道这个词是表示imba、牛逼
+>然后是表示一种果奶、某个蓝绿厂、动画里跟ed对应的
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)确实，以前说()()用在游戏中指的是超模这一类说法(Overpowered)
+还有就是片头曲
+现在……
+

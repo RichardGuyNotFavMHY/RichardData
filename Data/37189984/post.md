@@ -117,3 +117,54 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 别啊，万叶罪不至此，虽然不排除你米内部有没有猛干准备卖枫散![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
 
+----
+
+##### <span id="pid705934045">19.[0] \<pid:705934045\> 2023-07-31 00:59:29 by jlabhiw</span>
+其实并没有，我去看了一下，这人在嘲讽8u断章取义搬ta的话
+
+----
+
+##### <span id="pid705934218">20.[0] \<pid:705934218\> 2023-07-31 01:01:17 by 哒哒块</span>
+>[jump](#pid705789062) meg1412(2023-07-30 10:16) 说: 
+>
+>你散真是独一档的角色，我玩其他二游从来没见过一个角色离谱到这种程度，哪里都要禁跟塌妈b的失德艺人一样![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)这下真原神xz了
+
+失德艺人，是原神只因吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705934505">21.[0] \<pid:705934505\> 2023-07-31 01:04:04 by 玩c罗玩的</span>
+>[jump](#pid705934218) 哒哒块(2023-07-31 01:01) 说: 
+>
+>失德艺人，是原神只因吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+鸡哥可是带来不少乐子和高质量二创的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705934705">22.[0] \<pid:705934705\> 2023-07-31 01:05:48 by D_终于考好了</span>
+>[jump](#pid705934505) 玩c罗玩的(2023-07-31 01:04)说:
+>[quote][pid=705934218,37189984,2]Reply[/pid] <b>Post by [uid=16199709]哒哒块[/uid] (2023-07-31 01:01):</b><br/><br/>失德艺人，是原神只因吧[s:ac:哭笑][/quote]鸡哥可是带来不少乐子和高质量二创的[s:ac:哭笑]
+
+你是看不起我孤散者吗![你已经死了](https://img4.nga.178.com/ngabbs/post/smile/a2_45.png)
+
+----
+
+##### <span id="pid705934712">23.[1] \<pid:705934712\> 2023-07-31 01:05:50 by 澄江月影</span>
+贴吧老哥领先其他论坛几个版本![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705935025">24.[0] \<pid:705935025\> 2023-07-31 01:09:04 by kjhbiuhuhiuh123</span>
+油液频道的举报专区还是有点乐的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705935149">25.[1] \<pid:705935149\> 2023-07-31 01:10:35 by 子怡哈哈哈</span>
+但凡堵嘴没那么严重都不会在二游有这么独一份的待遇()
+
+----
+
+##### <span id="pid705940815">26.[1] \<pid:705940815\> 2023-07-31 02:27:26 by 春日隼</span>
+乐，幽夜那边已经不去了，热评帖看着散解在里面极力挽尊真的会好笑![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)都心知肚明就是不敢说呢
+

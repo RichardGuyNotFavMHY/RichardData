@@ -499,3 +499,129 @@ O是物质实体，P是灵魂，我第二反应是这个：
 
 最快4.1就会出现了![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)今年还是没用逐月节
 
+----
+
+##### <span id="pid705929148">74.[0] \<pid:705929148\> 2023-07-31 00:19:02 by 别慌冷静</span>
+我现在就想看前瞻视频，mhy家策划一年一度地从后台走出来，像去年须弥前瞻一样一副自信满满、得意洋洋的样纸介绍他那个新O.P.元素
+
+----
+
+##### <span id="pid705932219">75.[0] \<pid:705932219\> 2023-07-31 00:43:53 by EmmaDragon</span>
+>[jump](#pid705862204) 花瓣飘零(2023-07-30 17:55):
+
+崩三就有了，一开始给个免费的，然后就慢慢不演了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705934559">76.[0] \<pid:705934559\> 2023-07-31 01:04:39 by setsuna2023</span>
+秘不发丧这词太搞了看一次笑一次![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+3.6活动延到两周后才开说明内部对什么是烂活其实是有一定评估的，只不过在歌舞升平的控评中还是低估了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705941760">77.[0] \<pid:705941760\> 2023-07-31 02:41:08 by _Rosaline_ToT</span>
+整不出来活了。只能在文案和角色设计上恶心人
+
+----
+
+##### <span id="pid705941795">78.[0] \<pid:705941795\> 2023-07-31 02:41:52 by tbiph9277</span>
+你别荒，芒着准备前瞻呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705941988">79.[0] \<pid:705941988\> 2023-07-31 02:45:21 by tbiph9277</span>
+>[jump](#pid705856817) 今锁朱楼(2023-07-30 17:25) 说: 
+>
+>我感觉两种可能，一种是做梦成真，所以摁着。
+>二是其他流水爆炸，把米哈游也炸懵了，现在在想枫丹要不要删点东西。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+结晶们都给你讲了我们米哈游剧情是需要半年时间打磨的，20天哪里改的完![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)必不可能是后者好吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705942070">80.[0] \<pid:705942070\> 2023-07-31 02:46:52 by Gdygfdqqqq</span>
+在芒，别荒
+
+----
+
+##### <span id="pid705942112">81.[0] \<pid:705942112\> 2023-07-31 02:47:37 by tbiph9277</span>
+>[jump](#pid705854996) lng236(2023-07-30 17:14) 说: 
+>
+>毕竟不能让op影响了太子的销路
+
+无所谓吧，反正是0，影不影响都这样了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705942422">82.[0] \<pid:705942422\> 2023-07-31 02:53:22 by sudashui1551</span>
+>[jump](#pid705901140) 永遠の蓬莱人形(2023-07-30 21:22) 说: 
+>
+>已经想像到新句式了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>O和P很重要吗，也就你这样的OP觉得重要吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+呜呜呜不要直接打那两个字母![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
+已经被ccq两次辽
+
+----
+
+##### <span id="pid705942790">83.[0] \<pid:705942790\> 2023-07-31 03:01:03 by akxttx1</span>
+我要是马哈鱼我就放弃o了。直接押宝新游。马哈鱼这公司的水平爆款只能出现一个。新爆款做出来容易。维持老爆款还是爆款的能力为0。究其原因就是喜欢作![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid705971611">84.[0] \<pid:705971611\> 2023-07-31 09:47:09 by 种蘑菇2021</span>
+>[jump](#pid705865869) 做梦多端呆胖子(2023-07-30 18:14) 说: 
+>
+>慌慌张张，匆匆忙忙
+
+唱出来了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705973174">85.[0] \<pid:705973174\> 2023-07-31 09:54:25 by 止战之战</span>
+你不说我还真不知道马上要4.0了。
+
+----
+
+##### <span id="pid705975309">86.[0] \<pid:705975309\> 2023-07-31 10:04:19 by 安林zsbd</span>
+怎么会有人说新机制是让新人追进度用的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)是须弥草神与其他草角色的对比不够惨烈吗？
+我打赌水神绝对是新机制的集大成者，和其他角色尤其是赠送角色不在一个水平线那种
+
+----
+
+##### <span id="pid705983232">87.[0] \<pid:705983232\> 2023-07-31 10:38:47 by 澄江月影</span>
+>[jump](#pid705942790) akxttx1(2023-07-31 03:01) 说: 
+>
+>我要是马哈鱼我就放弃o了。直接押宝新游。马哈鱼这公司的水平爆款只能出现一个。新爆款做出来容易。维持老爆款还是爆款的能力为0。究其原因就是喜欢作![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+那个当新旗舰赌的sh被砍了，目前看到的游戏就zzz和一个类动森，那个类动森我感觉出来就暴死![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)zzz一个动作手游我甚至觉得热度不会比铁高![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid705987085">88.[0] \<pid:705987085\> 2023-07-31 10:55:10 by 雷电女王的鬼铠</span>
+最让我蚌埠住的还是梦里这个元素特意用O和P开头
+这个OP啥意思老米不会不知道吧，总不会跑来告诉我这是擎天柱的缩写![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+退一万步往最好里想，老米可能是借用这个新元素来冲淡原本OP的意思，但在有心人眼里这就是公司递上的一把新的宝刀好不好
+以后人一开口，你都不知道说的哪个OP
+再说这个梦里的神奇元素也不是什么好东西，用来爆老卡金币的混账玩意儿，这下妥妥的双重打击了
+
+假如带点恶意去揣摩老米，那简直无法想象
+设计部门亲自下场用OP带OP的节奏，这下真被哪个OP夺舍了
+
+----
+
+##### <span id="pid705999271">89.[0] \<pid:705999271\> 2023-07-31 11:43:32 by hx0539</span>
+给我o泡给我o泡o泡果奶要要要
+喝o泡果奶～把清凉抱抱～～喝o泡果奶～把好喝抱抱～
+
+----
+
+##### <span id="pid706002675">90.[0] \<pid:706002675\> 2023-07-31 11:57:06 by 阿猹不吃香菜</span>
+>[jump](#pid705856817) 今锁朱楼(2023-07-30 17:25) 说: 
+>
+>我感觉两种可能，一种是做梦成真，所以摁着。
+>二是其他流水爆炸，把米哈游也炸懵了，现在在想枫丹要不要删点东西。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)删东西？不可能的，他们宁可摆烂恶心人也不会慌着忙着删东西
+

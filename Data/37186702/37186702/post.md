@@ -379,3 +379,45 @@ wyswd ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 靠 这个tag 猛干xZoe![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 这对cp理查出道了
 
+----
+
+##### <span id="pid705929618">63.[1] \<pid:705929618\> 2023-07-31 00:22:15 by 别慌冷静</span>
+用码农的手段对付码农，github备份，太对了
+
+----
+
+##### <span id="pid705930664">64.[0] \<pid:705930664\> 2023-07-31 00:30:36 by 吃瓜围观真君</span>
+cy看明早贴会不会锁![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706000737">65.[0] \<pid:706000737\> 2023-07-31 11:49:29 by OrionIcy</span>
+好好好，这就去点个star![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid706011797">66.[0] \<pid:706011797\> 2023-07-31 12:38:10 by biubiu222</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)乐死了
+
+----
+
+##### <span id="pid706015861">67.[0] \<pid:706015861\> 2023-07-31 12:58:23 by 多图沙猫</span>
+感谢总结，原来猛干语录是这么回事![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706016393">68.[0] \<pid:706016393\> 2023-07-31 13:01:15 by ricardo_milos</span>
+>[jump](#pid705905500) TheStonyPlayer(2023-07-30 21:49) 说: 
+>
+>坏消息：存在gov takedown，也有DMCA铁拳
+>好消息：后者存在counter notice(况且记录帖应该也不属于DMCA的管辖范围)；至于前者，我不觉得散解有那么大的实力![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>
+>最大的问题还是受众受限--被gfw制裁的网站是很劝退的
+
+国内网盘得绑手机，懒狗lz还得搞个虚拟手机号，有没有大佬帮忙传到网盘的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 300mb
+
+----
+
+##### <span id="pid706020242">69.[0] \<pid:706020242\> 2023-07-31 13:20:59 by justwe373</span>
+已star
+

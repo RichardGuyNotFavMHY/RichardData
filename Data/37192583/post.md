@@ -75,3 +75,33 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid705840213">13.[0] \<pid:705840213\> 2023-07-30 15:48:58 by 冬虫夏草花花茶</span>
 原来bgo的fes展，陈睿在上面讲话，底下是真有老哥举“陈睿nmsl”的大字报。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid705935383">14.[0] \<pid:705935383\> 2023-07-31 01:12:59 by 爱尔海参</span>
+我觉得不至于，去FES的基本都是纯结晶，票贵还得抢。所以荒芒在富哥眼中看来都不算事![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid705940644">15.[0] \<pid:705940644\> 2023-07-31 02:24:38 by cladrew</span>
+298属实太离谱，60才是正常价格![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid705941391">16.[0] \<pid:705941391\> 2023-07-31 02:35:45 by _Rosaline_ToT</span>
+快进到提刀刺杀刘伟和蔡浩宇![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)这不是没有可能
+
+----
+
+##### <span id="pid705953341">17.[0] \<pid:705953341\> 2023-07-31 07:59:04 by YDami</span>
+大伟哥！我想看你cos林尼！
+
+----
+
+##### <span id="pid705956816">18.[0] \<pid:705956816\> 2023-07-31 08:27:44 by 叶公好龙娘</span>
+>[jump](#pid705818132) ky446(2023-07-30 13:15) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)你别说昨晚还真梦到老米在FES展被人闹麻了，好像主要是新出机制有点撕旧卡，然后氪佬请几十个临时工去现场举牌，而且更骚的是那些临时工还个个都是大伟哥，我还在想大伟哥怎么在举牌然后就醒了，本来都忘记的差不多了看到你贴又想起来
+
+陛下托梦衣带诏
+清君侧 哭死![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+

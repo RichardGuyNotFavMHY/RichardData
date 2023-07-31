@@ -169,3 +169,8 @@ b站开合了！
 ##### <span id="pid705845007">27.[0] \<pid:705845007\> 2023-07-30 16:19:30 by ricardo_milos</span>
 原来真叫李孟安啊
 
+----
+
+##### <span id="pid705989643">28.[0] \<pid:705989643\> 2023-07-31 11:05:26 by amsun36</span>
+不看写帖子我还真不知道猛干哥叫孟安![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
