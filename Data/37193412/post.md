@@ -2174,3 +2174,21 @@ hoyoverse？hoyolive！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15
 我之前是真的没想到原来这种除了崩相方人设以外毫无卵用的，白月光角色。受众居然是油腻大叔
 现在想想真是期待能写得出魔女会和带入小白花的这两帮编剧强强联手能写出个啥![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
 
+----
+
+##### <span id="pid706151102">284.[0] \<pid:706151102\> 2023-08-01 04:56:23 by linmenil</span>
+这不发外网证明米哈游对性少数群体做出的贡献![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706151198">285.[0] \<pid:706151198\> 2023-08-01 05:02:03 by Caolvzi</span>
+>[jump](#pid705971571) 离去的脚步声(2023-07-31 09:46) 说: 
+>
+>前者是因为这个人就不是直男
+>
+>而且这和魔女会那种中年大妈剧本不一样，男同也不喜欢中年大妈
+>
+>后者非常能理解而且非常常见，我就不说给兄弟们爽爽这个烂梗了，哪个论坛贴吧问变成美少女好不好都会有无数宅男同意的，男性向手游群里，总有被安上美少女头衔或者自诩妹子天天贴贴来贴贴去的群宠，这些人99.9%都是男的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)然而猛干哥不是关注了一堆福利姬来着
+

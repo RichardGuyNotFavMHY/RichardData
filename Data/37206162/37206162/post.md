@@ -65,3 +65,16 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 学到了zsbd
 
+----
+
+##### <span id="pid706304397">11.[0] \<pid:706304397\> 2023-08-01 19:03:19 by 基神的强袭自由</span>
+>[jump](#pid706096117) 不织围脖(2023-07-31 19:36) 说: 
+>
+>[和裕茶馆]本来是原神版的一个合集(STID=23552542)，后来独立开版(FID=758)。
+>
+>根据[关于原神版面的部分调整公告](https://nga.178.com/read.php?tid=32323722)，[蒸汽鸟报]合集(STID=32323696)曾经短暂地作为[和裕茶馆](FID=758)的子合集，<b>这就是搜索和裕茶馆能搜出[蒸汽鸟报]的原因</b>。
+>
+>2023年4月12日，根据[url=https://nga.178.com/read.php?ti
+
+给大佬点赞
+

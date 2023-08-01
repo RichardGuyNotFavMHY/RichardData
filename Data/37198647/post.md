@@ -290,3 +290,57 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 二一年托马邀约有人说乙我还真没法反驳
 二三年卡维邀约有人说乙我他妈笑他一年![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid706145070">38.[0] \<pid:706145070\> 2023-08-01 01:52:53 by Siriuskxy</span>
+无所谓，不抽林尼，比起林尼我更想去冲娼年那个巴什么什么的![哦嗬嗬嗬](https://img4.nga.178.com/ngabbs/post/smile/a2_09.png)那个典狱长有点意思，剧情不逆天就抽了，其余角色不是御姐不抽
+
+----
+
+##### <span id="pid706145620">39.[0] \<pid:706145620\> 2023-08-01 02:02:14 by 妄覆舟</span>
+>[jump](#pid705908250) Toposes(2023-07-30 22:06) 说: 
+>
+>8.14见分晓好吧，两男人社区绝对爆炸
+
+现在还有人想闹吗，不如大伙一起进里版乐一乐然后收拾家伙跑路吧
+
+----
+
+##### <span id="pid706146329">40.[0] \<pid:706146329\> 2023-08-01 02:15:46 by htqwtbtwta</span>
+乙游不卖腐啊，而且有不少女玩家都跑顺火暖了吧，起码在那主角基本上是团宠，也不知道某米吸引的是什么人群![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid706259766">41.[0] \<pid:706259766\> 2023-08-01 15:47:08 by WindsK1245</span>
+当初没有限定成男的时候女玩家骂得可是很难听的
+现在没有限定女……
+你们男的还是素质太高了![不明觉厉](https://img4.nga.178.com/ngabbs/post/smile/a2_36.png)
+
+----
+
+##### <span id="pid706261236">42.[0] \<pid:706261236\> 2023-08-01 15:53:25 by 云华君</span>
+>[jump](#pid705906580) 尤塔基里斯(2023-07-30 21:55) 说: 
+>
+>什么乙游会给角色搞cp营销啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)，剧情里把主角当摄像头的游戏我玩了不少，像原神这样把主角当工具人上一秒说你是她的全部，下一秒就把你抛脑后跟你仇人贴贴，仿佛你俩在主线里的羁绊跟假的一样的游戏还真不多见![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)  
+>
+>还有人踩？那我就祝散草99吧![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+
+~~未定~~![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)亲自下场挑拨的含金量
+
+----
+
+##### <span id="pid706263094">43.[0] \<pid:706263094\> 2023-08-01 16:01:16 by 叶公好龙娘</span>
+只要听圣和栓将发起进攻，一切都会好起来
+
+听圣人呢？
+因为太过极端被大众宅男自己切割了
+
+编剧：![笑](https://img4.nga.178.com/ngabbs/post/smile/a2_07.png)![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+笑嘻了，就这肥宅还想和我battle
+
+----
+
+##### <span id="pid706270179">44.[0] \<pid:706270179\> 2023-08-01 16:33:20 by hyzhu97想不出用户名</span>
+没事啊，让米知道初中学生妹是有多喜欢自家giegie，为爱发电捏
+咱不氪不就完了![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)就等你o策划滑跪成隔壁崩二里番立绘
+

@@ -3969,3 +3969,20 @@ b站还改名了
 ##### <span id="pid705797928">600.[0] \<pid:705797928\> 2023-07-30 11:13:44 by Question10086</span>
 怎么了，喜欢蒸鸡的人这样不是很正常吗？
 
+----
+
+##### <span id="pid706180023">601.[0] \<pid:706180023\> 2023-08-01 09:59:03 by 一着差棋</span>
+![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)这帖子怎么都没看到，还是别人给的链接才看到的
+
+----
+
+##### <span id="pid706183302">602.[0] \<pid:706183302\> 2023-08-01 10:12:42 by 芥子禹</span>
+>[jump](#pid705646677) ricardo_milos(2023-07-29 14:20):
+
+和猛干哥用词都差不多，确实是一路人了
+
+----
+
+##### <span id="pid706247459">603.[0] \<pid:706247459\> 2023-08-01 14:49:58 by chomuchomu</span>
+有必要国新和拳风村分别转载一次的顶级好帖![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
+

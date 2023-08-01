@@ -349,3 +349,40 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 战双的那个谁是真nm顶，我就喜欢大大大![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
 
+----
+
+##### <span id="pid706151213">63.[0] \<pid:706151213\> 2023-08-01 05:02:37 by 樱待未来</span>
+>[jump](#pid706141854) 冯仔from2001(2023-08-01 01:09)说:
+><b>Reply to [pid=705972074,37202318,1]Reply[/pid] Post by [uid=38749466]Cazedor[/uid] (2023-07-31 09:49)</b>战双的那个谁是真nm顶，我就喜欢大大大[s:ac:喘]
+
+记得好像叫含英？当时b站主页看见了一个实机走悬崖的视频，然后搜了下角色演示，确实顶。
+
+----
+
+##### <span id="pid706152218">64.[0] \<pid:706152218\> 2023-08-01 05:57:27 by 苹果红茶</span>
+>[jump](#pid705994312) 李猛干厨(2023-07-31 11:23) 说: 
+>
+>你说得对，但![img](./45_34c275ds.jpg)
+
+鬼……鬼图……打码![自戳双目](https://img4.nga.178.com/ngabbs/post/smile/a2_28.png)
+
+----
+
+##### <span id="pid706152303">65.[0] \<pid:706152303\> 2023-08-01 06:01:23 by 小王饼干</span>
+pg是成男和成女![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)感觉枫丹除了仆人没什么想抽的
+
+----
+
+##### <span id="pid706152364">66.[0] \<pid:706152364\> 2023-08-01 06:04:04 by 6666655555略略略</span>
+别说二游了，王者荣耀的皮肤比原好上一百倍。
+
+----
+
+##### <span id="pid706153270">67.[0] \<pid:706153270\> 2023-08-01 06:37:53 by MINE_CRAFT</span>
+米想阉割的人，就是玩家。
+
+----
+
+##### <span id="pid706153452">68.[0] \<pid:706153452\> 2023-08-01 06:42:53 by 人是有极限的</span>
+现在谁还信谁就是sb![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)黑丝小男孩和蒸鸡难道不比rsq重量级多了
+

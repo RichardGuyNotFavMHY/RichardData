@@ -1082,3 +1082,37 @@ fos ro daaaaah！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)�
 灵魂献祭不仅优秀在本体剧情和支线剧情上，而是在每个怪物和场景都写了一个故事，非常有意思
 但是这个游戏是宝石姬上的游戏，而且目前B站视频只有主线剧情流程，而没有游戏文本内怪物的内容，其他地方也没有移植，实属无奈
 
+----
+
+##### <span id="pid706147381">164.[0] \<pid:706147381\> 2023-08-01 02:37:42 by 一拳打死白学家</span>
+来试试gal吧![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)量大管饱 废萌向和剧情向 总能找到合适的
+
+----
+
+##### <span id="pid706147783">165.[0] \<pid:706147783\> 2023-08-01 02:47:56 by whiskyDJ</span>
+好像竟然没人推荐少前，少前药丸![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706148537">166.[0] \<pid:706148537\> 2023-08-01 03:08:58 by Hesperia</span>
+单机我求你去看底特律和伊迪芬奇的秘密![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+手游…fgo，1234，9，57。总有一款满足你![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+
+~~听说坎公剧情挺好的但我没玩过仅供参考~~
+
+----
+
+##### <span id="pid706149004">167.[0] \<pid:706149004\> 2023-08-01 03:23:48 by nnhywgk</span>
+>[jump](#pid705277251) ou2021(2023-07-27 17:44) 说: 
+>
+>荒野大镖客2
+>某个今年出的剧情解析我已经看三四遍了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我被剧透了就玩不下去了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+----
+
+##### <span id="pid706149440">168.[0] \<pid:706149440\> 2023-08-01 03:39:33 by 三世寂静</span>
+国产单机推一波古剑奇谭三![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
+

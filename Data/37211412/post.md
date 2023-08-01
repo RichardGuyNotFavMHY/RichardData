@@ -67,3 +67,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706133743">9.[0] \<pid:706133743\> 2023-07-31 23:54:27 by 冰河新栖姬</span>
 笑死了，4D沉浸式体验![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)
 
+----
+
+##### <span id="pid706144608">10.[0] \<pid:706144608\> 2023-08-01 01:45:41 by 星际兄贵</span>
+mhy真敢搞出脑机接口我就亲自飞去上海爆破本部
+
+----
+
+##### <span id="pid706147748">11.[0] \<pid:706147748\> 2023-08-01 02:47:18 by bwzkuc233</span>
+![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

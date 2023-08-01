@@ -613,3 +613,10 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706128522">105.[0] \<pid:706128522\> 2023-07-31 23:17:21 by 远山杏_</span>
 黑丝吐舌小男孩。逆天剧情我可以静音连点，但是恶臭黑丝小男孩可以在游戏内外各种地方突然跳出来强碱我的眼睛![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
 
+----
+
+##### <span id="pid706260881">106.[0] \<pid:706260881\> 2023-08-01 15:51:56 by WindsK1245</span>
+更讨厌黑丝吊带小男孩
+我是全图鉴党，抽了其他，讨厌他更多是因为厨子nt
+但是看到林尼的立绘的时候有种生理上的不适，我会接画头像的稿子，每次看到林尼的时候都很恶心
+

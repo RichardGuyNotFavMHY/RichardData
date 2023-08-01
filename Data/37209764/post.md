@@ -104,3 +104,31 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706110720">17.[0] \<pid:706110720\> 2023-07-31 21:12:02 by 看看其他的</span>
 丢给群里的好心帮帮佬了![花痴](https://img4.nga.178.com/ngabbs/post/smile/ac38.png)
 
+----
+
+##### <span id="pid706147211">18.[0] \<pid:706147211\> 2023-08-01 02:33:47 by 碎月翩跹</span>
+没反应过来说的是游戏，还想着理查也有深渊可以打吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706147813">19.[0] \<pid:706147813\> 2023-08-01 02:49:03 by Hitagi.</span>
+>[jump](#pid706147211) 碎月翩跹(2023-08-01 02:33)说:
+>没反应过来说的是游戏，还想着理查也有深渊可以打吗[s:ac:哭笑]
+
+有的，你现在跑去微博散兵超话群嘲几条，能坚持一天看评论难度大概等于满星了
+
+----
+
+##### <span id="pid706148387">20.[0] \<pid:706148387\> 2023-08-01 03:04:31 by 种蘑菇2021</span>
+如果我还在NGA泛原神版块发帖那只是戒断反应。深渊？什么深渊？不熟。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706154001">21.[0] \<pid:706154001\> 2023-08-01 06:56:41 by 红薯干</span>
+没看到，错过了![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+----
+
+##### <span id="pid706155413">22.[0] \<pid:706155413\> 2023-08-01 07:23:45 by 壬应葵辛周数？</span>
+我说句实话，现在里版真的比游戏好玩![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

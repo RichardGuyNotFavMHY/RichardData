@@ -490,3 +490,8 @@ lz不会觉得zzzq是love小男孩以及黑皮下水道吧![无语](https://img4
 ##### <span id="pid706107816">90.[0] \<pid:706107816\> 2023-07-31 20:52:15 by KeyMiracle</span>
 建议你去跟方zoe合流一下，上reddit大论我们怎么迫害米哈游导致它做不出好游戏。
 
+----
+
+##### <span id="pid706147862">91.[0] \<pid:706147862\> 2023-08-01 02:50:17 by 鸭梨果汁</span>
+但是米哈游在徐汇![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

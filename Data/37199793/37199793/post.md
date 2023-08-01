@@ -235,3 +235,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 我觉得本质更类似于圣遗物![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)都是用来卡你养成的主要资源。皇冠的提升有时候和模组还是没法比的，前者单纯加点数值但我要是拿出深海9模阁下该如何应对
 
+----
+
+##### <span id="pid706261734">33.[0] \<pid:706261734\> 2023-08-01 15:55:32 by ywer2000</span>
+之前的动态删了，最新只留这个，我只能说这是忽悠没看之前动态的人，配合之前动态只能更小丑
+![img](./33_ecd54fgi.png)
+

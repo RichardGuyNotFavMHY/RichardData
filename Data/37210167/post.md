@@ -150,3 +150,131 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706120250">23.[0] \<pid:706120250\> 2023-07-31 22:20:12 by レオ</span>
 总之先梭哈一个林尼芙芙黄豆姐，对林尼是性格感兴趣+日配cv，对芙芙是性格感兴趣+脸，对黄豆就是纯粹的喜欢脸了，准备迎接一个前两个爆典和最后一个强度寄(不是
 
+----
+
+##### <span id="pid706144501">24.[0] \<pid:706144501\> 2023-08-01 01:43:45 by 平之下雪乃</span>
+我就看这水神能給我整什么活![嘲笑1](https://img4.nga.178.com/ngabbs/post/smile/ac20.png)
+要也是个逆天枫丹我就全跳了，不如回去补老婆命座
+
+----
+
+##### <span id="pid706144852">25.[0] \<pid:706144852\> 2023-08-01 01:49:32 by 江鹤疏</span>
+捍卫烤批荣光，最后还是投了个潜水员投了个萝莉
+问就是喜欢声优![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)
+
+----
+
+##### <span id="pid706145300">26.[0] \<pid:706145300\> 2023-08-01 01:56:46 by 厉害费多大劲</span>
+还记得当年须弥开的时候，最受期待的是散兵和纳西妲
+真是很期待仆人和水神在枫丹开局后的风评了
+
+----
+
+##### <span id="pid706145703">28.[0] \<pid:706145703\> 2023-08-01 02:03:41 by 猫栗子4440</span>
+怎么没有“无”选项
+
+----
+
+##### <span id="pid706145725">29.[0] \<pid:706145725\> 2023-08-01 02:04:02 by 天射星</span>
+>[jump](#pid706116907) 大牧羊犬(2023-07-31 21:57) 说: 
+>
+>说真的，剧情没出来之前，水神好歹是几近空白的还有发挥余地，仆人这肯定是要从冲突找补感化或者揭开事实几个选项中挑些写，你们仆人厨不觉得很悬吗![吓](https://img4.nga.178.com/ngabbs/post/smile/ac8.png)
+
+无所谓，暴雷直接原地切割当oc玩![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+反正黄莺的声音不是鹿喑这种辣耳朵的恶毒骚0不至于拿着玩都难受![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)  
+况且原神的剧情还重要吗，也就不知道还有没有的考据党觉得重要了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706145900">30.[0] \<pid:706145900\> 2023-08-01 02:07:15 by 那菈純</span>
+喜歡一個蘿莉，但看起來好像又是個奶。
+喜歡一個成男，但聽起來debuff 拉滿。
+喜歡一個少女，但她甚至沒在pv登場。
+喜歡一個成女，但是岩系懂的都懂。
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706146660">31.[0] \<pid:706146660\> 2023-08-01 02:22:05 by bwzkuc233</span>
+其他？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706147261">32.[0] \<pid:706147261\> 2023-08-01 02:34:57 by Kusanali</span>
+这个其他 是故意的还是不小心的
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706152204">33.[0] \<pid:706152204\> 2023-08-01 05:57:03 by cbzmxx</span>
+我得了一种看见其他就想选的病![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid706152814">34.[0] \<pid:706152814\> 2023-08-01 06:22:14 by 安林zsbd</span>
+黄豆吧……以前喜欢克洛琳德的原设(绿色那个，如果我没记错人的话)，改了就不喜欢了
+水神我本来就不咋喜欢水石头的句子
+整个枫丹下来应该能让我攒出厨力的满命了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706188201">35.[0] \<pid:706188201\> 2023-08-01 10:33:15 by Bean＆bean</span>
+平等地不喜欢所有荒芒的人![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
+
+----
+
+##### <span id="pid706191335">36.[0] \<pid:706191335\> 2023-08-01 10:45:02 by 球球游侠</span>
+不好意思，下意识选了其他![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706198498">37.[0] \<pid:706198498\> 2023-08-01 11:09:46 by 血崩的咸鱼</span>
+黄豆姐外号不是已经变成午餐肉了吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706200178">38.[0] \<pid:706200178\> 2023-08-01 11:15:38 by 。一念七绝</span>
+小loli怎么比黑丝还低![怒](https://img4.nga.178.com/ngabbs/post/smile/ac25.png)
+
+----
+
+##### <span id="pid706209387">39.[0] \<pid:706209387\> 2023-08-01 11:49:55 by 自诩为</span>
+没有我&amp;#10084;，假榜
+
+----
+
+##### <span id="pid706223159">40.[0] \<pid:706223159\> 2023-08-01 12:48:26 by 十夜铃沄花</span>
+神奇的克洛琳德，讨论永远没多少人讨论，投票她总是票不少![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706230480">41.[0] \<pid:706230480\> 2023-08-01 13:23:47 by 少男看上哥哥</span>
+最期待仆人，喜欢那身燕尾服(？)外加性格感觉是那种很攻的帅姐执事。![愁](https://img4.nga.178.com/ngabbs/post/smile/ac28.png)但也最担心会被垫给小男孩，而且同样也最怕跟草神一个情况(大不了直接切割)
+第二投水神，除了神以外没啥想法。只希望好好塑造，要搞cp无所谓，ml也欢迎。但只希望能好好塑造(虽说可能性不大就是了)![囧](https://img4.nga.178.com/ngabbs/post/smile/ac21.png)
+第三就是克洛琳德，只是听说cv是石川由依所以才投的![那个…](https://img4.nga.178.com/ngabbs/post/smile/a2_08.png)
+
+----
+
+##### <span id="pid706297391">42.[0] \<pid:706297391\> 2023-08-01 18:28:18 by gtgce</span>
+>[jump](#pid706223159) 十夜铃沄花(2023-08-01 12:48) 说: 
+>
+>神奇的克洛琳德，讨论永远没多少人讨论，投票她总是票不少![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+枪姐在她还是苹果姐的时候就很有人气了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706297801">43.[0] \<pid:706297801\> 2023-08-01 18:30:30 by Inquisit</span>
+没有全不喜欢，只能其他了
+
+----
+
+##### <span id="pid706300142">44.[0] \<pid:706300142\> 2023-08-01 18:42:50 by 十夜铃沄花</span>
+>[jump](#pid706297391) gtgce(2023-08-01 18:28) 说: 
+>
+>枪姐在她还是苹果姐的时候就很有人气了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+我知道()
+主要是经常提到她都会有人说更喜欢以前的没什么人提喜欢现在的克洛琳德，但是投票的时候票数明显不低![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+我猜可能她对很多人而言都是第二第三选择吧(只有我是首选的吗)
+
