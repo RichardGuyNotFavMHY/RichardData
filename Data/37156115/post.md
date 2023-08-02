@@ -110,3 +110,27 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 [url](https://tieba.baidu.com/p/6200961022)
 给有考古需要的大家指个路![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid706503974">17.[0] \<pid:706503974\> 2023-08-02 16:42:58 by keaigou3</span>
+当年比现在好拿多了，满级就有。跟着正常肝度就能拿满
+
+记得当年板鸭臭脚味的多力多兹，那味现在还能想象
+
+现在原画集各种要求才是更难受的，弃坑1年的老年人我玩不懂现在角色和关卡机制根本肝不了，极高的学习和时间成本
+
+----
+
+##### <span id="pid706508316">18.[0] \<pid:706508316\> 2023-08-02 17:01:37 by mute小号</span>
+2019的零食箱是满级送，没记错的话是82级，当时开锁进终极区纯粹挨打，游戏内坐牢游戏外被嘲讽，纯纯冤种![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706516334">19.[0] \<pid:706516334\> 2023-08-02 17:38:04 by 闇塵</span>
+离谱，当时这帖子跟这个人我还见过![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)因为当时我也是想领这玩意的
+
+----
+
+##### <span id="pid706516688">20.[0] \<pid:706516688\> 2023-08-02 17:39:28 by 鹭闲</span>
+现在零食大礼包也没了，我是真不想肝原画集，就不能和以前一样上线填个地址直接送吗~~无所谓，反正我润了~~![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

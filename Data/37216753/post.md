@@ -804,3 +804,13 @@ sb临时讨论合集+1
 ##### <span id="pid706366224">146.[0] \<pid:706366224\> 2023-08-02 00:35:33 by 天涯墨刀</span>
 我在找图版时，突然发现有个隐藏的传送门，就来了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)哦吼，新大陆，太有意思了
 
+----
+
+##### <span id="pid706372932">147.[0] \<pid:706372932\> 2023-08-02 01:35:16 by 又双叒叕是名字重复</span>
+我是看着里茶长大的啊![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+----
+
+##### <span id="pid706402299">148.[0] \<pid:706402299\> 2023-08-02 09:12:22 by SJsmwy</span>
+里版第一批玩家跟你闹呢![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

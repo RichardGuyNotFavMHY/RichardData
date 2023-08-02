@@ -86,3 +86,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706248747">10.[0] \<pid:706248747\> 2023-08-01 14:56:20 by abasiyaluo2</span>
 按惯例来说，仆人应该不至于用枫丹武器吧，设定上也说不通
 
+----
+
+##### <span id="pid706417182">11.[0] \<pid:706417182\> 2023-08-02 10:17:09 by 绮曼念雪</span>
+至今也没和板砖和解，尤其是后面出了花神系专武的时候
+

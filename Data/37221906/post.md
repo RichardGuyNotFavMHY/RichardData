@@ -191,3 +191,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706370558">29.[0] \<pid:706370558\> 2023-08-02 01:10:29 by 普鲁士蓝蓝蓝</span>
 ![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)还冲月卡？![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)还冲月卡？![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)还冲月卡？![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)还冲月卡？![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)还冲月卡？![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)还冲月卡？
 
+----
+
+##### <span id="pid706371671">30.[0] \<pid:706371671\> 2023-08-02 01:21:19 by lkkkkstar</span>
+我也忏悔![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+氪了五千，不如给女朋友买个戒指![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+----
+
+##### <span id="pid706376317">31.[0] \<pid:706376317\> 2023-08-02 02:22:11 by lcm68</span>
+不要说了我好痛，现在就想回到前年和去年一棒子打昏氪金的自己![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)  氪了五位数，这钱干点啥不香
+
+----
+
+##### <span id="pid706419974">32.[0] \<pid:706419974\> 2023-08-02 10:28:06 by 英俊小喵</span>
+我也氪了四千多，二游定价确实贵，不过钱花就花了，反正也不是整天请客对吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706428416">33.[0] \<pid:706428416\> 2023-08-02 11:00:56 by 谢谢我不喝</span>
+是这样的，出去吃点好的也就人均一百上下
+如果是别的游戏还能说起码抽的多，米这1k给你歪个常驻直接麻住![冷](https://img4.nga.178.com/ngabbs/post/smile/ac5.png)
+

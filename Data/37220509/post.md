@@ -244,3 +244,30 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706357441">35.[0] \<pid:706357441\> 2023-08-01 23:39:24 by 似逸风者</span>
 我很好奇散斗高台是什么时候垮塌的，以我对剑斗的印象，必须至少是出现了一次性几十贴炮轰散兵强度的情况才有可能完全改变风向
 
+----
+
+##### <span id="pid706373905">36.[0] \<pid:706373905\> 2023-08-02 01:47:01 by RNG丶明谷文</span>
+>[jump](#pid706299365) heavenscar(2023-08-01 18:38) 说: 
+>
+>剑斗浓度高不高？![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+<b><span class="deeppink">以前不是叫散斗？
+懂不懂捌佰楼第二的含金量
+</span></b>
+![img](./36_41638dby.jpg)
+
+----
+
+##### <span id="pid706374755">37.[0] \<pid:706374755\> 2023-08-02 01:58:03 by 等把美又强的剑</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)其实浓度最高的是鸡舍吧。。只不过一般选手都不会路过那边。。
+
+----
+
+##### <span id="pid706479236">38.[0] \<pid:706479236\> 2023-08-02 14:52:13 by 学园生活部由纪</span>
+还是喜欢“层岩巨渊”这个名称，形象直观。个人签名里打的流明石标签也是由此而生![委屈](https://img4.nga.178.com/ngabbs/post/smile/ac22.png)
+
+----
+
+##### <span id="pid706487830">39.[0] \<pid:706487830\> 2023-08-02 15:31:40 by 金陵居士</span>
+我是桓那兰那来的，一路追杀无留陀至此！![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

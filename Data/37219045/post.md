@@ -173,3 +173,13 @@ tlou2刨掉剧情部分，可是当之无愧的游戏工业化顶端![喷](https
 
 你没记错![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)就是tlou
 
+----
+
+##### <span id="pid706374303">25.[0] \<pid:706374303\> 2023-08-02 01:52:01 by Sern·Simuka</span>
+进来看到大病区，满意的离去![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706374856">26.[0] \<pid:706374856\> 2023-08-02 01:59:24 by 一袭风月待人归</span>
+抛开球杆开瓢不谈，美末二是现阶段各种意义上的顶尖水平吧
+

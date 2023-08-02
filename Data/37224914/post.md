@@ -32,3 +32,13 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706368566">5.[0] \<pid:706368566\> 2023-08-02 00:53:15 by StayCoolBro</span>
 有蒸模在，應該連正常后台挂草的都很難出![诶嘿](https://img4.nga.178.com/ngabbs/post/smile/a2_05.png)
 
+----
+
+##### <span id="pid706378114">6.[0] \<pid:706378114\> 2023-08-02 02:58:14 by 埋もれる記憶</span>
+目前4.0放出的角色，一个草都没有，就害怕离开草国之后。得重走岩系的待遇，直接断代了
+
+----
+
+##### <span id="pid706424994">7.[0] \<pid:706424994\> 2023-08-02 10:48:09 by 灬yorick灬</span>
+楼上说的对,有蒸馍在,除非妮绽放等须弥草队强度跟不上了,才会出后台草角色补强,短期内没有看到这种情况 纳塔再说吧![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)
+

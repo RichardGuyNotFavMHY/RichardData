@@ -53,3 +53,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706292056">7.[0] \<pid:706292056\> 2023-08-01 18:03:23 by 玉石白六维转角</span>
 这个白色透肉吗
 
+----
+
+##### <span id="pid706409619">8.[0] \<pid:706409619\> 2023-08-02 09:45:00 by 阿荠赛</span>
+我的也到了 是绿色的 不过L size不适合我个矮子 当睡衣吧
+
+----
+
+##### <span id="pid706410413">9.[0] \<pid:706410413\> 2023-08-02 09:48:20 by Sigmoni</span>
+>[jump](#pid706284510) 文Kaka跳大怒插Sccc丶(2023-08-01 17:30) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png) 不知道为啥，这个表情出现在衣服上时，我有点幻视成阿拉伯文
+
+这个不就是阿拉伯字母t吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

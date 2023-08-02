@@ -24,3 +24,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706254304">3.[0] \<pid:706254304\> 2023-08-01 15:22:15 by 龙澂</span>
 你说得对，但是“鸱鸮怪叫，难掩鹓鶵清音”![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
 
+----
+
+##### <span id="pid706377853">4.[0] \<pid:706377853\> 2023-08-02 02:51:44 by KeyMiracle</span>
+没错就是这样的。只有“表达能力”而没有思考能力、当然更没有科学、专业、真实的知识和实际行动体验作为思考的材料的时候，“表达”出来的内容当然就都是一堆shit。
+

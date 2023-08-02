@@ -121,3 +121,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706359778">19.[0] \<pid:706359778\> 2023-08-01 23:53:04 by 安比Anby</span>
 我的冒险小虎队解密卡在哪![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
 
+----
+
+##### <span id="pid706405208">20.[0] \<pid:706405208\> 2023-08-02 09:25:18 by 无意识koishi</span>
+几岁了
+还是说来洗里版版面的![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

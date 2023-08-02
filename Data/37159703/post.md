@@ -1116,3 +1116,15 @@ fos ro daaaaah！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)�
 ##### <span id="pid706149440">168.[0] \<pid:706149440\> 2023-08-01 03:39:33 by 三世寂静</span>
 国产单机推一波古剑奇谭三![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
 
+----
+
+##### <span id="pid706554337">169.[0] \<pid:706554337\> 2023-08-02 20:55:35 by 教团的拽守望者</span>
+少女前线
+让叶戈尔上尉告诉你真正的好反派是长什么样的![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+![img](./169_c03f32k0.jpg)
+
+----
+
+##### <span id="pid706560254">170.[0] \<pid:706560254\> 2023-08-02 21:33:53 by SUTOP</span>
+命运石之门![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
