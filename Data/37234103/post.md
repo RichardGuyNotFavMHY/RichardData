@@ -203,3 +203,40 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 我在微博搜索猛干相关关键词看有没有整理或堵嘴的，看到一些明牌女玩家在那不在意
 感觉猛干找对人了，我先退下了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid706601071">31.[0] \<pid:706601071\> 2023-08-03 05:28:17 by eddyseptem</span>
+其实铁我之前还算满意
+可他84天主线更新两小时(带战斗)
+就算做得再好我也会不不满啊，开服那么高流水那么大宣传，就这？
+![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+我就是个臭打游戏的，没内容给我玩就想天天吊着我做日常，这真的不行
+
+~~这重要吗只有我这种剧情厨才会在乎吧~~
+
+----
+
+##### <span id="pid706601776">32.[0] \<pid:706601776\> 2023-08-03 06:02:29 by red7777</span>
+你们理查能不能管管那群op啊？天天在铁板刷有关于原神的，还高强度绑定两个游戏玩家群体。回合制玩家被O这种在游戏鄙视链最低端的存在捆绑是真的恶心啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706603210">33.[0] \<pid:706603210\> 2023-08-03 06:51:42 by UID60173942</span>
+崩铁还不够烂啊，开服才三个月比快三年的原神还无聊，还安排了一堆拖整天在崩铁发晚安，正经帖子没几个
+
+----
+
+##### <span id="pid706603612">34.[0] \<pid:706603612\> 2023-08-03 07:00:52 by Eliseblanc</span>
+我选捧0踩all![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+出脑之后做完隔壁剧情感觉也味挺冲的，不是拉角色做垫子就是硬炒cp，直接和原一起卸载了，乐
+
+----
+
+##### <span id="pid706603889">36.[0] \<pid:706603889\> 2023-08-03 07:06:13 by q794623</span>
+就崩铁那个卖梗电商的笑话文案水平。。。笑死![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706603910">37.[0] \<pid:706603910\> 2023-08-03 07:06:41 by 老虎二世</span>
+都来理查了都知道米哈游一路货色![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+

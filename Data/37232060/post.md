@@ -107,3 +107,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 现在，哈哈，我不做。
 
+----
+
+##### <span id="pid706630073">19.[0] \<pid:706630073\> 2023-08-03 09:57:59 by FNFF</span>
+基本上没什么喜欢的，但是刷到“白日闯”那个鼓励偷窃抢劫的司马玩意我恨不得把ch塞到抽水马桶里冲到提瓦特入夜狂飙(已退坑)
+

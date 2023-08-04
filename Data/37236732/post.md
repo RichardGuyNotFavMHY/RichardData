@@ -98,3 +98,20 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706586359">13.[0] \<pid:706586359\> 2023-08-03 00:30:02 by scoutqq</span>
 人类无法想象没见过的东西,作者也无法创作一个智商高于自己的角色![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid706592349">14.[0] \<pid:706592349\> 2023-08-03 01:27:46 by 田瑾优子</span>
+只能说，虽然小丑，但是由于百分百三个大版本以后才可能落地，大概率避开除了一年一度的小支线外的塑造，戴因，win![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+~~屁股戴因厨，戴因真的是我原里外观和属性最喜欢的了~~
+
+----
+
+##### <span id="pid706605263">15.[0] \<pid:706605263\> 2023-08-03 07:27:34 by khz_dyk</span>
+写不出高贵的人格，只会写高贵的身份![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+----
+
+##### <span id="pid706632241">16.[0] \<pid:706632241\> 2023-08-03 10:07:25 by 一如往常ii</span>
+伪文青是这样的，只会堆设定和“考据”， 容易将塑造的角色和剧情代入强烈的个人感情。
+别说主线的人物塑造了，就连这次的3.8夏活，本来是一个低龄合家欢剧情，但是字里行间又有一大堆属于社畜的吐槽和恶趣味，代入感全没了，这种剧情让真没工作过或者不了解社会的未成年看着还感觉新鲜，我现在看这种私货只觉得心累。
+

@@ -121,3 +121,36 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706576635">17.[0] \<pid:706576635\> 2023-08-02 23:20:12 by 墩墩桃</span>
 谁家游戏里的猫能比真猫可爱啊
 
+----
+
+##### <span id="pid706708540">18.[0] \<pid:706708540\> 2023-08-03 15:49:38 by kunizu</span>
+看新活动，今天你知道了吧，藏着“策划心理学”的重要考据证据。
+
+----
+
+##### <span id="pid706708987">19.[0] \<pid:706708987\> 2023-08-03 15:51:41 by UID62492053</span>
+>[jump](#pid706565172) dearsilvia(2023-08-02 22:05)说:
+>感觉不如佩佩……可爱
+
+我想起了WOW要塞里的那个佩佩了……当时还可以用各种小玩具把佩佩卡的贼大一个……哎……
+
+----
+
+##### <span id="pid706709851">20.[0] \<pid:706709851\> 2023-08-03 15:55:45 by adsere</span>
+![抠鼻](https://img4.nga.178.com/ngabbs/post/smile/ac30.png)自从自己养了猫之后，就对虚拟猫完全无感了
+
+----
+
+##### <span id="pid706714270">21.[0] \<pid:706714270\> 2023-08-03 16:16:08 by 小样儿鸣</span>
+>[jump](#pid706566315) 雷军单推人(2023-08-02 22:13) 说: 
+>
+>枫丹pv后有人做的图![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>![img](./9_fdafe4sh.jpg)
+
+这也太……![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid706721584">22.[0] \<pid:706721584\> 2023-08-03 16:48:23 by grc4000-</span>
+但寝子的剧情我真的很喜欢
+

@@ -441,3 +441,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 [[太阳风计划Project Nornium]角色先导PV-仿钻折光-哔哩哔哩] [url](https://b23.tv/y0d9D0W)
 有两段影像，看完了我只能说厚礼蟹![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
 
+----
+
+##### <span id="pid706592590">58.[0] \<pid:706592590\> 2023-08-03 01:30:38 by livlocked</span>
+>[jump](#pid706562771) 与你肩并肩(2023-08-02 21:50) 说: 
+>
+>老腰？
+
+老腰后来好几次版本前瞻都出现了，怎么可能是他，按照上面的说法这个人20年就离职了
+

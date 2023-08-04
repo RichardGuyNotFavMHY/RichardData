@@ -211,3 +211,28 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid706587475">33.[0] \<pid:706587475\> 2023-08-03 00:38:46 by lcm68</span>
 是伪娘和成都魔术师的差别
 
+----
+
+##### <span id="pid706589924">34.[0] \<pid:706589924\> 2023-08-03 01:01:07 by 薯仔233</span>
+伪娘标准宅宅xp，和那种一眼男但衣服媚神父的小男孩还是有区别的吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706595109">36.[0] \<pid:706595109\> 2023-08-03 02:07:31 by Rudimentary</span>
+练纯女性向游戏都不会出林尼散兵这么恶心的角色![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706595467">37.[0] \<pid:706595467\> 2023-08-03 02:14:29 by rea禁止刹车</span>
+这是画女硬说男的伪娘，这种xp即使不是女性向，对于宅男来说也是有点猎奇但是并不会反感的那种，很多人都挺喜欢
+
+----
+
+##### <span id="pid706595873">38.[0] \<pid:706595873\> 2023-08-03 02:21:58 by 春の奈</span>
+>[jump](#pid706573749) 草酸艾司西酞普蘭(2023-08-02 23:01) 说: 
+>
+>这可是望月kei啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>![img](./26_9c830csg.jpg)
+
+好伟大的一张脸![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
+

@@ -60,3 +60,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 猛干哥的名言可真是万金油，哪里都能用：
 他最近怎么了，被哪个op夺舍了这是……
 
+----
+
+##### <span id="pid706602550">10.[1] \<pid:706602550\> 2023-08-03 06:32:56 by liqinggan</span>
+>[jump](#pid706585034) 冰弓花鼓(2023-08-03 00:19) 说: 
+>
+>你看一楼![img](./8_3283bd31.png)虽然感觉像反串，但也不排除猛干哥开小号的可能吧
+
+不是，这也是猛干语录啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

@@ -62,3 +62,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 说他们装考据都是玷污这个词，考据是做出了好的作品再去追根溯源寻找证实启发作者进行参考的源头，米哈游端上来的这坨不是复读就是缝合，考据它也配？
 
+----
+
+##### <span id="pid706619236">8.[0] \<pid:706619236\> 2023-08-03 09:07:00 by 我修院淳平</span>
+现在人多，自顶一下![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
