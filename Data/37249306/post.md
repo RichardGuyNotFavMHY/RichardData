@@ -227,3 +227,24 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 很正常，嗨卡解多半是见识少没磕过好的，而三阶在官方点多次打破滤镜(尤其是ep)的行为下，还能留下多少有脑子做事的东西![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid706846824">34.[0] \<pid:706846824\> 2023-08-04 09:58:40 by 凌晨十八分</span>
+>[jump](#pid706800057) 塔克里里(2023-08-04 00:16) 说: 
+>
+>版友玩拓麻歌子不带我，背叛![怒](https://img4.nga.178.com/ngabbs/post/smile/ac25.png)
+
+这年头还有人知道拓麻歌子，泪目了![中枪](https://img4.nga.178.com/ngabbs/post/smile/ac3.png)
+
+----
+
+##### <span id="pid706850579">35.[0] \<pid:706850579\> 2023-08-04 10:14:07 by 转生三周目</span>
+60哥是不是也好久没出现了，把里版电子宠物还给我们啊
+
+----
+
+##### <span id="pid706850877">36.[0] \<pid:706850877\> 2023-08-04 10:15:23 by 須賀悠衣</span>
+>[jump](#pid706791687) Gdygfdqqqq(2023-08-03 23:21):
+
+背叛！！！![怒](https://img4.nga.178.com/ngabbs/post/smile/ac25.png)
+

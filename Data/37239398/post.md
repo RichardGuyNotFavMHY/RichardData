@@ -745,3 +745,12 @@ o逆风的时候米孝子总得吹点什么吧![哭笑](https://img4.nga.178.com
 
 我回去看了下，说改的贴找不到了，可能我被xz忽悠了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
 
+----
+
+##### <span id="pid706854453">108.[0] \<pid:706854453\> 2023-08-04 10:30:18 by iplikm</span>
+>[jump](#pid706798075) 蓝梦天王(2023-08-04 00:02) 说: 
+>
+>我回去看了下，说改的贴找不到了，可能我被xz忽悠了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+艹，你的头像和名字![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

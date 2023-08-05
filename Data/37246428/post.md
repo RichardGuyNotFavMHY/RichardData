@@ -192,3 +192,39 @@ l水神一个神，也不可能只和那维关系好，黄豆和克姐貌似是�
 
 多加一个怎么了，来个九子夺嫡![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid706848997">28.[0] \<pid:706848997\> 2023-08-04 10:07:34 by gtgce</span>
+小兔子那个主要是cb吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)
+
+----
+
+##### <span id="pid706851832">29.[0] \<pid:706851832\> 2023-08-04 10:19:23 by 踏上旅途i</span>
+克洛琳德对小黄开枪，感觉她们会有对手戏，然后走偏成打情骂俏
+
+----
+
+##### <span id="pid706852181">30.[0] \<pid:706852181\> 2023-08-04 10:20:57 by ALLAN_Y</span>
+自从不再对米家角色上心后，我对cp大乱炖导致的cp党大战表示很乐，现在我也是猛干哥态度了。
+
+----
+
+##### <span id="pid706853680">31.[0] \<pid:706853680\> 2023-08-04 10:27:10 by 断裂的尾巴</span>
+仆人真的垫林尼和林尼炒我就直接跑路……
+我只要她剧情不小丑就行![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
+
+----
+
+##### <span id="pid706854862">32.[0] \<pid:706854862\> 2023-08-04 10:31:46 by Nydia_Y</span>
+多来点多来点![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)打的激烈点
+哪边赢了给哪边刷99
+
+----
+
+##### <span id="pid706856201">33.[0] \<pid:706856201\> 2023-08-04 10:37:13 by 世事苍茫成云烟</span>
+>[jump](#pid706752372) wwwpoiu(2023-08-03 19:21) 说: 
+>
+>仆人都要洗白白了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+期待mhy又整新活![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

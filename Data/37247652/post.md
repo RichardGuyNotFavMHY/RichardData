@@ -204,3 +204,62 @@ Funding This deep brain stimulation intervention was supported by an unrestricte
 
 不是洗钱避税的就算成功
 
+----
+
+##### <span id="pid706882002">25.[0] \<pid:706882002\> 2023-08-04 12:23:53 by 记得关灯</span>
+>[jump](#pid706797639) 垃圾贡(2023-08-03 23:58) 说: 
+>
+>闲着没事去搜了下。
+>
+>这位孙伯明教授的研究领域基本都集中在阿兹海默症和帕金森症上，这两年里发表了数十篇论文。而和抑郁症相关的主要研究有他作为通讯作者的两篇文章，Structural and functional correlates of the response to deep brain stimulation at ventral capsule/ventral striatum region for treatment-resistant depression，Bilateral Hab
+
+笑死了我超，这不纯纯骗补吗![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
+
+----
+
+##### <span id="pid706884657">26.[0] \<pid:706884657\> 2023-08-04 12:36:07 by 清蒸盐姜香菜鱼</span>
+>[jump](#pid706797639) 垃圾贡(2023-08-03 23:58):
+
+坏了，别是悄悄避税的吧，然后被想吹米的翻出来大肆宣扬
+
+----
+
+##### <span id="pid706895293">27.[0] \<pid:706895293\> 2023-08-04 13:30:11 by 星际兄贵</span>
+真的假的？
+如果是真的那SAO现实版可能不远了
+
+----
+
+##### <span id="pid706896101">28.[0] \<pid:706896101\> 2023-08-04 13:34:23 by tonerico</span>
+mhy是把这公司当偶像打造的，一边买量一边私下投入培养粉头去训练围绕大粉形成公司饭圈
+
+----
+
+##### <span id="pid706904223">29.[0] \<pid:706904223\> 2023-08-04 14:15:37 by 黑眼睛的银白色暴风雪</span>
+不就是脑部特定位置接入电级轻微放电进行刺激吗，这尼玛都应用了好几年的技术了，只不过首次拿来治疗抑郁症而已，这也要吹一波人类之光是吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706920063">30.[0] \<pid:706920063\> 2023-08-04 15:31:37 by 无料通贩商</span>
+>[jump](#pid706797639) 垃圾贡(2023-08-03 23:58) 说: 
+>
+>闲着没事去搜了下。
+>
+>这位孙伯明教授的研究领域基本都集中在阿兹海默症和帕金森症上，这两年里发表了数十篇论文。而和抑郁症相关的主要研究有他作为通讯作者的两篇文章，Structural and functional correlates of the response to deep brain stimulation at ventral capsule/ventral striatum region for treatment-resistant depression，Bilateral Hab
+
+真就一点贡献不做啊
+
+----
+
+##### <span id="pid706963759">31.[0] \<pid:706963759\> 2023-08-04 19:03:08 by 千针石林矿藏开采</span>
+>[jump](#pid706787719) 清蒸盐姜香菜鱼(2023-08-03 22:57) 说: 
+>
+>提供资金等于合作研发，乐死
+
+让我想到了小米![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707046181">32.[0] \<pid:707046181\> 2023-08-05 05:37:16 by 白玄冰</span>
+对了，求各位给这up顺手点点举办啊，我找到了这个视频洗稿的原文。可惜阿姨非要护着他，举办失败![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)这里是原文链接:[url](https://mp.weixin.qq.com/s/p9Af9oH_XNZB6DKrJ0nYcw)![img](./32_4f68a13i.jpg)![img](./32_cbd7863i.jpg)
+

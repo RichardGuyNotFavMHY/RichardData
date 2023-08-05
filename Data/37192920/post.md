@@ -160,3 +160,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 你这么一说，我就去找凸点去了，好像还真有？
 
+----
+
+##### <span id="pid706994625">22.[2] \<pid:706994625\> 2023-08-04 21:23:05 by 子守歌</span>
+看完4.0pv决定把这贴挖出来，让大家回忆下工业化大退步![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+

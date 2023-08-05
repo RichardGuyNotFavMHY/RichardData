@@ -175,3 +175,13 @@ cancanneed![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
 
 你的勇气我很欣赏![goodjob](https://img4.nga.178.com/ngabbs/post/smile/a2_02.png)
 
+----
+
+##### <span id="pid706851807">29.[0] \<pid:706851807\> 2023-08-04 10:19:17 by 四十四号外星人</span>
+知子莫若父![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+
+----
+
+##### <span id="pid706860496">30.[0] \<pid:706860496\> 2023-08-04 10:54:45 by Karq</span>
+![img](./30_1efdcdnh.jpg)![img](./30_c125645a.gif)
+

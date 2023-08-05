@@ -253,3 +253,96 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 没问题了，虚拟角色本身不具有人格属性，我不好说现在还有没有真正的草厨，现在大伙出脑后都把角色当成工具攻击文案。
 不过大伙应该都是反3.3草神塑造的，反编剧对散兵单方向拉扯角色背书不对角色做正向反馈(这里入乡随俗俗称吸血)。是不是散解看这两点是不是支持文案直接打死就好。
 
+----
+
+##### <span id="pid706837759">38.[0] \<pid:706837759\> 2023-08-04 09:19:19 by 白菊 ほたる</span>
+喜欢纳西妲没毛病。但如果是顶着我喜欢纳西妲，所以人设没毛病，剧情没毛病，赔钱货没毛病，喷的人一律有病的。
+1、散解套皮草厨给赛博爹找补
+2、编剧、文案厨
+3、没脑子，没主见人云亦云的傻卵
+4、没基本底线人云亦云的傻卵
+挑一个吧![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+----
+
+##### <span id="pid706839930">39.[0] \<pid:706839930\> 2023-08-04 09:28:55 by aswaw111</span>
+哥们这么喜欢自欺欺人的都在3.6切割了，现在都3.8了，还不切割还觉得自己是草厨没啥问题的，很难不怀疑是散草双厨![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706842522">40.[0] \<pid:706842522\> 2023-08-04 09:40:00 by bloombury</span>
+我的心路历程：
+3.3之前：小草好惹人怜爱啊，我要经常带着她大世界转转 ![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png) 
+3.6之前：剧情有点膈应忍忍还行，别想太多   ![愁](https://img4.nga.178.com/ngabbs/post/smile/ac28.png)
+3.6之后：草神？提八的工具人罢了 ![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+----
+
+##### <span id="pid706845275">41.[0] \<pid:706845275\> 2023-08-04 09:52:07 by 巳龚蓝丑郝芦</span>
+缺什么宣传什么![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706876902">43.[0] \<pid:706876902\> 2023-08-04 12:00:25 by 布耶尔今天吃什么</span>
+>[jump](#pid706822971) Luoxifq(2023-08-04 07:48):
+
+建议把我昨天的言论表起来挂城墙，你们这种人也就会扣帽子了![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)要不是你们的nt言论漫出来了，谁管你们啊既然都是为了屁股，那以后大家都别要脑子算了![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
+
+----
+
+##### <span id="pid706886140">44.[0] \<pid:706886140\> 2023-08-04 12:43:18 by Luoxifq</span>
+>[jump](#pid706876902) 布耶尔今天吃什么(2023-08-04 12:00)说:
+><b>Reply to [pid=706822971,37249130,2]Reply[/pid] Post by [uid=65159007]Luoxifq[/uid] (2023-08-04 07:48)</b>建议把我昨天的言论表起来挂城墙，你们这种人也就会扣帽子了[s:ac:blink]要不是你们的nt言论漫出来了，谁管你们啊既然都是为了屁股，那以后大家都别要脑子算了[s:ac:反对]
+
+![img](./44_b14e286.jpeg)
+![img](./44_828be82h.jpg)
+放这了，这么瞧不起里版，你怎么还在？
+
+----
+
+##### <span id="pid706886708">45.[0] \<pid:706886708\> 2023-08-04 12:46:20 by 布耶尔今天吃什么</span>
+>[jump](#pid706886140) Luoxifq(2023-08-04 12:43)说:
+><b>Reply to [pid=706876902,37249130,3]Reply[/pid] Post by [uid=65213909]布耶尔今天吃什么[/uid] (2023-08-04 12:00)</b><br/><br/>[img]https://img.nga.178.com/attachments/mon_202308/04/l2Q2s-g4r9K2mT3cSv9-j6.jpeg[/img]<br/>[img]https://img.nga.178.com/attachments/mon_202308/04/l2Q2s-317kZkT1kShs-12h.jpg[/img]<br/>放这了，这么瞧不起里版，你怎么还在？
+
+还有呢，再多发点，全发出来![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid706886973">46.[1] \<pid:706886973\> 2023-08-04 12:47:43 by 逢河牧野0v0</span>
+>[jump](#pid706876902) 布耶尔今天吃什么(2023-08-04 12:00) 说: 
+>
+>建议把我昨天的言论表起来挂城墙，你们这种人也就会扣帽子了![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)要不是你们的nt言论漫出来了，谁管你们啊既然都是为了屁股，那以后大家都别要脑子算了![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
+
+![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)说你两句就这样了？心理素质真不行
+
+----
+
+##### <span id="pid706888342">47.[0] \<pid:706888342\> 2023-08-04 12:54:41 by Luoxifq</span>
+>[jump](#pid706886708) 布耶尔今天吃什么(2023-08-04 12:46)说:
+><b>Reply to [pid=706886140,37249130,3]Reply[/pid] Post by [uid=65159007]Luoxifq[/uid] (2023-08-04 12:43)</b>还有呢，再多发点，全发出来[s:ac:偷笑]
+
+你不会真以为大家都跟你们散解一样查成分那叫一个六吧？
+我昨天在那个帖子看你们几个跳得欢有印象罢了，我甚至后排还回覆了，只可惜你们只会一击脱离
+
+----
+
+##### <span id="pid706888838">48.[0] \<pid:706888838\> 2023-08-04 12:57:23 by 蜡笔小小小旧</span>
+感觉很少看到草神厨了，我3.2以前还是草神厨，现在只厨见到大慈树王以前的草神
+
+----
+
+##### <span id="pid706888918">49.[0] \<pid:706888918\> 2023-08-04 12:57:48 by 哈人哈人太哈人了</span>
+>[jump](#pid706876902) 布耶尔今天吃什么(2023-08-04 12:00) 说: 
+>
+>建议把我昨天的言论表起来挂城墙，你们这种人也就会扣帽子了![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)要不是你们的nt言论漫出来了，谁管你们啊既然都是为了屁股，那以后大家都别要脑子算了![反对](https://img4.nga.178.com/ngabbs/post/smile/ac7.png)
+
+建议多看点赔草99调理一下
+
+----
+
+##### <span id="pid706889221">50.[0] \<pid:706889221\> 2023-08-04 12:59:23 by 蜡笔小小小旧</span>
+>[jump](#pid706886140) Luoxifq(2023-08-04 12:43)说:
+><b>Reply to [pid=706876902,37249130,3]Reply[/pid] Post by [uid=65213909]布耶尔今天吃什么[/uid] (2023-08-04 12:00)</b><br/><br/>[img]https://img.nga.178.com/attachments/mon_202308/04/l2Q2s-g4r9K2mT3cSv9-j6.jpeg[/img]<br/>[img]https://img.nga.178.com/attachments/mon_202308/04/l2Q2s-317kZkT1kShs-12h.jpg[/img]<br/>放这了，这么瞧不起里版，你怎么还在？
+
+原来只是自称是草神厨，其实![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

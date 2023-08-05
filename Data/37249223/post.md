@@ -246,3 +246,45 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 一个精通无用的风C4星法器只能用流浪乐章，我不好说，这都不抽专武，是真的爆不出米啊
 
+----
+
+##### <span id="pid706899235">25.[0] \<pid:706899235\> 2023-08-04 13:50:12 by 雷霆嘎巴猪猪</span>
+>[jump](#pid706811723) ln271828(2023-08-04 02:22) 说: 
+>
+>楼主确实不严谨，那从这个角度看在小助手词条算法下限五只有阿贝多可以拿来对比，那阿贝多他也打不过呀![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)  
+>编辑:补个图(新发现，阿老师这边甚至是几乎全员4华冠![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+>![img](./25_4bd4f5rr.jpg)
+
+阿贝多老师大防御收益比例是100%，其他的大攻击收益比例是75%，所以即使在同等词条下其他的圣遗物分数仍比阿贝多低，其实也没必要拿这方面说事，毕竟追圣遗物上限都是氪佬在满体刷，和那些爆不出米的3j没什么关系![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+
+----
+
+##### <span id="pid706926310">26.[1] \<pid:706926310\> 2023-08-04 16:01:06 by 大龙吃水果</span>
+>[jump](#pid706791180) NATFproposal(2023-08-03 23:18) 说: 
+>
+>赔宝武器使用率专武第三，优菈武器使用率专武第一
+>
+>赔解那么爱赔宝，怎么不舍得抽铃铛呢，说的爱geigei就要给geigei最好的呢？![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+专武抽了啊，(嘴上抽了)
+
+满命了啊，(嘴上满了)
+
+![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+都是小孩子不懂事闹着玩的![中枪](https://img4.nga.178.com/ngabbs/post/smile/a2_23.png)
+
+----
+
+##### <span id="pid706927131">27.[0] \<pid:706927131\> 2023-08-04 16:04:46 by 叶落寒宵</span>
+这下散兵被n次背叛了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+
+----
+
+##### <span id="pid706935020">28.[0] \<pid:706935020\> 2023-08-04 16:41:14 by 呆鸡Elio</span>
+歪个楼 心海战场铃铛可以月华五五开 不可以的话铃铛就不拉了
+
+----
+
+##### <span id="pid706944937">29.[0] \<pid:706944937\> 2023-08-04 17:24:57 by 全部席卷而去</span>
+散兵自身给原神带来的流水和热度远大于他给原神带来的损失，而且这些损失相当一部分是不可逆的
+

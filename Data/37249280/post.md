@@ -126,3 +126,30 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 戳啦，先有()才有的原![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
 
+----
+
+##### <span id="pid706839706">18.[0] \<pid:706839706\> 2023-08-04 09:27:56 by YVANLAU</span>
+![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)想知道，当三界说原神不行的时候，仙u会急着出来跳反嘛
+
+----
+
+##### <span id="pid706848049">19.[0] \<pid:706848049\> 2023-08-04 10:03:52 by 用占星就可以吗</span>
+>[jump](#pid706793625) 夹缝中干涉(2023-08-03 23:33) 说: 
+>
+>错过理查新活动了好痛心![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)但是没有被厕味冲脸何尝不是一种幸运
+
+左转剑斗，请![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid706848707">20.[0] \<pid:706848707\> 2023-08-04 10:06:34 by q794623</span>
+建议把散()和测梅语录打个包发结晶聚集地给一点小小的(原神不行震撼)
+
+
+太沙雕了，太好笑了，哈哈哈哈.jpg(此处应有包头语音包doge)
+
+----
+
+##### <span id="pid706862674">21.[0] \<pid:706862674\> 2023-08-04 11:03:23 by 不要和傻逼争论</span>
+不是隔壁那个科普谷子的帖子我都没看懂烫烫之类的东西，我说怎么看怎么不对味儿呢，厕妹的东西，那能对味儿喽？
+
