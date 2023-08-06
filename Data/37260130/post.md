@@ -227,3 +227,21 @@ wc真有吗？![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)
 ##### <span id="pid707011750">34.[0] \<pid:707011750\> 2023-08-04 22:47:44 by yenfsjs</span>
 不是4.5进池我不服![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid707076430">35.[0] \<pid:707076430\> 2023-08-05 10:45:56 by 谢小咸</span>
+![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)岩 成女 大剑 常驻缺岩可能补位 疑似4.5落地
+没关系我们岩厨早就习惯了![不活了](https://img4.nga.178.com/ngabbs/post/smile/a2_33.png)
+
+----
+
+##### <span id="pid707077353">36.[0] \<pid:707077353\> 2023-08-05 10:50:57 by 須賀悠衣</span>
+>[jump](#pid706989296) xlsq03(2023-08-04 21:00):
+
+没见过女人？
+
+----
+
+##### <span id="pid707081367">37.[0] \<pid:707081367\> 2023-08-05 11:12:27 by 阿米托福</span>
+进常驻好像另有其人吧，但是黄豆姐你怎么想不开要拿大剑啊![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+

@@ -192,3 +192,64 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 這下可好了，連水神都可以不抽了
 直接坐等4.5甘雨復刻![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)![干杯2](https://img4.nga.178.com/ngabbs/post/smile/a2_55.png)
 
+----
+
+##### <span id="pid707096180">29.[1] \<pid:707096180\> 2023-08-05 12:36:27 by 银杏yx</span>
+宣传图个人感觉没什么问题，建模脸是真圆![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)(你游老毛病了)pv里还特地给个仰视镜头显得更圆润了，在想什么
+
+----
+
+##### <span id="pid707099057">30.[0] \<pid:707099057\> 2023-08-05 12:52:59 by SCP250</span>
+兼具优雅和可爱和屑![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)可惜肉眼可见的要成为爆典机器和垫子力![img](./30_7ca55byw.jpg)![img](./30_461a91sg.jpg)![img](./30_3f10d6sg.jpg)
+
+----
+
+##### <span id="pid707101804">31.[0] \<pid:707101804\> 2023-08-05 13:09:07 by l秦珺媛</span>
+别的不说，中文cv烂成这样还好意思说是一个地区的神呢，待遇也太烂了，配的一点b格都没有，装疯的感觉太强了![你这种人…](https://img4.nga.178.com/ngabbs/post/smile/a2_49.png)
+要不楼主对比下隔壁同样配音的远旅，你想要的恬静美丽神秘都有了![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
+
+----
+
+##### <span id="pid707102676">32.[0] \<pid:707102676\> 2023-08-05 13:13:52 by 玩c罗玩的</span>
+![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)这水神确实不比枫丹小男孩更像女的
+
+----
+
+##### <span id="pid707102871">33.[0] \<pid:707102871\> 2023-08-05 13:15:05 by 沆瀣一气zex</span>
+>[jump](#pid707099057) SCP250(2023-08-05 12:52)说:
+>兼具优雅和可爱和屑[s:ac:哭笑]可惜肉眼可见的要成为爆典机器和垫子力[img]https://img.nga.178.com/attachments/mon_202308/05/l2Q2s-eazwZhT3cSrs-yw.jpg[/img][img]https://img.nga.178.com/attachments/mon_202308/05/l2Q2s-bziiZbT3cSjt-sg.jpg[/img][img]https://img.nga.178.com/attachments/mon_202308/05/l2Q2s-1oj0ZgT3cSi6-sg.jpg[/img]
+
+第三张的设计把官设爆杀了![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
+
+----
+
+##### <span id="pid707102920">34.[0] \<pid:707102920\> 2023-08-05 13:15:20 by Aritaaa</span>
+![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)我真的分不清这b游戏到底谁是男的谁是女的了，水神越看越像小男孩，要ptsd了
+![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)要滑坡了，这不会也是内部喜欢小男孩的那帮阴间货色的皮套吧
+
+----
+
+##### <span id="pid707103278">35.[0] \<pid:707103278\> 2023-08-05 13:17:38 by 垂露东风</span>
+怎么回事，我一直以为水神睫毛是白色的![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)我觉得白色更好看啊![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
+
+----
+
+##### <span id="pid707107775">36.[1] \<pid:707107775\> 2023-08-05 13:44:29 by xzhlm</span>
+这张二创当初刚爆出来就很喜欢了，可惜，喜欢的是二创，对游戏本体一点兴趣都没有![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)哦不对，现在还是有一点点的，毕竟日配是小水，虽然是没听过的声线，事实证明你米根本不是按声线挑声优的![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)估计就是喜欢玩声优梗和挑人气
+
+----
+
+##### <span id="pid707108075">37.[1] \<pid:707108075\> 2023-08-05 13:46:22 by xzhlm</span>
+>[jump](#pid707011188) marshia(2023-08-04 22:45) 说: 
+>
+>……一个，还没有在游戏里出过场，剧情还没有公布，人设还不清晰的角色……
+>不如同人图符合氛围……？
+>你喜欢的到底是水神，还是你想象中的角色？
+
+不好意思，从我在见到内鬼设计稿那一刻开始，我喜欢的就是二创，我就诚实的直接讲了![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
+
+----
+
+##### <span id="pid707108698">38.[0] \<pid:707108698\> 2023-08-05 13:50:04 by 雾祈心</span>
+我美丽优雅又俏皮的芙……怎么会变成这样……
+

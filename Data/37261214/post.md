@@ -1398,3 +1398,452 @@ FGO的旧剑。![goodjob](https://img4.nga.178.com/ngabbs/post/smile/a2_02.png)
 ##### <span id="pid707069586">211.[0] \<pid:707069586\> 2023-08-05 10:05:40 by 一抹轻烟ya</span>
 ![响指](https://img4.nga.178.com/ngabbs/post/smile/pg14.png)来点大老婆![img](./211_2ac6bdd4.jpg)
 
+----
+
+##### <span id="pid707070088">212.[0] \<pid:707070088\> 2023-08-05 10:08:47 by 冷泠棱凌</span>
+>[jump](#pid707069586) 一抹轻烟ya(2023-08-05 10:05) 说: 
+>
+>![响指](https://img4.nga.178.com/ngabbs/post/smile/pg14.png)来点大老婆![img](./211_2ac6bdd4.jpg)
+
+这个画风！我好喜欢！![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)
+敢问是哪一款游戏，我去蝗一波![你为猴这么](https://img4.nga.178.com/ngabbs/post/smile/a2_53.png)
+
+----
+
+##### <span id="pid707071148">213.[0] \<pid:707071148\> 2023-08-05 10:15:30 by cclean</span>
+>[jump](#pid707019910) 九万里穹苍(2023-08-04 23:33):
+
+你好，问问第一张的美女出自哪个作品！最近见过一个cos，好看死了
+
+----
+
+##### <span id="pid707072953">215.[0] \<pid:707072953\> 2023-08-05 10:26:07 by 居小易</span>
+存在相册里好久不舍得删![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+(甚至还有几张当年的官图，再看看现在的官图![大哭](https://img4.nga.178.com/ngabbs/post/smile/a2_15.png)
+![img](./215_06b27cpl.jpg)
+![img](./215_423500p5.jpg)
+![img](./215_d768ddqo.jpg)
+![img](./215_0ed0a6ox.jpg)
+![img](./215_6fe759qo.jpg)
+![img](./215_1b9389qo.jpg)
+![img](./215_846d64nq.jpg)
+![img](./215_ef350dqo.jpg)
+![img](./215_acc549sg.jpg)
+
+----
+
+##### <span id="pid707073799">216.[0] \<pid:707073799\> 2023-08-05 10:31:10 by 居小易</span>
+![img](./216_43d391tp.jpg)
+![img](./216_8ddfbesg.jpg)
+
+----
+
+##### <span id="pid707075728">218.[0] \<pid:707075728\> 2023-08-05 10:42:05 by 梨酱喵</span>
+>[jump](#pid707011224) 雨源rainsource(2023-08-04 22:45) 说: 
+>
+>给你们看看我推的cp
+>![img](./25_772348c2.jpg)
+
+月洛好好好！
+来放一点屠苏，虽然画质很糊但是氛围真的很好![img](./218_20a149i6.png)![img](./218_c5ca64ia.png)
+
+----
+
+##### <span id="pid707076307">219.[0] \<pid:707076307\> 2023-08-05 10:45:19 by 风野_通宵</span>
+![img](./219_5d3b37ht.jpg)
+![img](./219_cb0c25mz.jpg)
+![img](./219_5c55ddsg.jpg)
+![img](./219_82f96asg.jpg)
+![img](./219_d3e6afsg.jpg)
+![img](./219_5a9667sg.jpg)
+![img](./219_ee0440sg.jpg)
+![img](./219_8e692esg.jpg)
+![img](./219_f3f3a8g0.jpg)
+![img](./219_ab8776ji.jpg)
+
+----
+
+##### <span id="pid707077591">220.[0] \<pid:707077591\> 2023-08-05 10:52:14 by 怎样才能不被禁言1</span>
+贴一些国漫美人，你米虽然现在不露熊和腿，但国风还是差点意思
+![img](./220_844522sg.jpg)
+![img](./220_a8ecfdsg.jpg)
+![img](./220_393c48ux.jpg)
+
+----
+
+##### <span id="pid707078126">221.[0] \<pid:707078126\> 2023-08-05 10:55:16 by 雲雲椒</span>
+其实须弥的男帅女美，就是强度和剧情被策划霍霍了![怒](https://img4.nga.178.com/ngabbs/post/smile/ac25.png)
+![img](./221_2fff81xc.jpg)
+![img](./221_17e4c2xc.jpg)
+![img](./221_9a305dsg.jpg)
+![img](./221_f6336csg.jpg)
+![img](./221_ced181rf.jpg)
+![img](./221_a570fehs.jpg)
+![img](./221_f07482hs.jpg)
+![img](./221_20a596hk.jpg)
+
+----
+
+##### <span id="pid707084970">223.[0] \<pid:707084970\> 2023-08-05 11:32:31 by 柑橘橙橙橙橙橙子</span>
+诚邀各位来看我老公张嘴！![img](./223_ad798dsg.jpg)![img](./223_329b22g5.jpg)
+
+----
+
+##### <span id="pid707091727">224.[0] \<pid:707091727\> 2023-08-05 12:10:17 by 米难吃一定是粥的问题</span>
+fgo的墙头，我不说谁能看出来这是三星的立绘![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+![img](./224_d100bdb7.jpg)
+![img](./224_1318bcb7.jpg)
+
+----
+
+##### <span id="pid707097417">225.[0] \<pid:707097417\> 2023-08-05 12:43:47 by 一成仇然</span>
+我有罪，我在二次元第一个爱人在原神里![img](./225_c5c847fu.jpg)![img](./225_7644aapa.jpg)![img](./225_ca984fsg.png)![img](./225_fb9256sg.png)![img](./225_7e7f300r.jpg)![img](./225_75ffa5zk.jpg)
+
+----
+
+##### <span id="pid707099079">226.[0] \<pid:707099079\> 2023-08-05 12:53:09 by 清蒸盐姜香菜鱼</span>
+>[jump](#pid707021740) 蓝梦天王(2023-08-04 23:44):
+
+里茶自己的画外旅照![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707099358">227.[0] \<pid:707099358\> 2023-08-05 12:54:44 by akira_offical</span>
+[collapse=我cp]
+
+----
+
+##### <span id="pid707099874">228.[0] \<pid:707099874\> 2023-08-05 12:57:48 by 冷泠棱凌</span>
+>[jump](#pid707021740) 蓝梦天王(2023-08-04 23:44) 说: 
+>
+>???
+>
+>这帖子是不是发错板块了?这里是里茶。
+
+抱歉现在才看到，但是<b>没有发错版</b>。
+就是给里茶潭友洗眼睛的，我没有针对谁，我是说枫丹的所有角色设计得都是一坨。
+
+----
+
+##### <span id="pid707101196">229.[0] \<pid:707101196\> 2023-08-05 13:05:35 by akira_offical</span>
+一些前妻
+![img](./229_088dc7g0.jpg)
+![img](./229_e42acfic.png)
+![img](./229_0349f1u0.png)
+
+----
+
+##### <span id="pid707101658">230.[0] \<pid:707101658\> 2023-08-05 13:08:11 by akira_offical</span>
+再发一张(网页版NGA真难传图片)
+
+----
+
+##### <span id="pid707101848">231.[0] \<pid:707101848\> 2023-08-05 13:09:23 by 张依奏</span>
+可爱的行吗![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)给大家看看我家鱼宝![img](./231_ebc5f1g6.jpg)
+
+----
+
+##### <span id="pid707103776">232.[0] \<pid:707103776\> 2023-08-05 13:20:39 by 摆烂的鱼鱼</span>
+赛博牛子hhh![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707114413">233.[0] \<pid:707114413\> 2023-08-05 14:25:02 by 木原光</span>
+之前坑的美丽老婆![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+![img](./233_3562e1g0.jpg)![img](./233_02d7d4sg.jpg)![img](./233_151e03g0.jpg)![img](./233_85b8e8sg.jpg)![img](./233_74289dsg.jpg)
+
+----
+
+##### <span id="pid707114668">234.[0] \<pid:707114668\> 2023-08-05 14:26:49 by うみです</span>
+放放隔壁的老公老婆和新磕的cp，真的巨拉扯但我好爱![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)![img](./234_7a8f1fe8.jpg)![img](./234_ae2e36e8.jpg)![img](./234_358036e8.jpg)![img](./234_cba276d4.jpg)
+
+还有被mhy绑架的我推，先生美丽，舍不得退坑![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)![img](./234_c0acefk0.png)![img](./234_d0384esg.jpg)![img](./234_4d004a2i.jpg)![img](./234_dbf716kz.png)![img](./234_a22eb9sg.jpg)![img](./234_fba511np.png)虽然但是，官图真的很美丽![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
+
+----
+
+##### <span id="pid707115260">236.[0] \<pid:707115260\> 2023-08-05 14:30:38 by 云间居雁中</span>
+![img](./236_3921b7hi.jpg)![img](./236_69c4ef2h.jpg)重回fgo![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)  
+最近重温家教感觉爷青回![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)![img](./236_3bf9b7d4.jpg)![img](./236_4a6516d4.jpg)![img](./236_7a8659d4.jpg)![img](./236_2fcbc5d4.jpg)
+
+----
+
+##### <span id="pid707115813">237.[0] \<pid:707115813\> 2023-08-05 14:34:21 by rcimg</span>
+还有我心心念念的帝君![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
+
+![img](./237_d5d4cf2i.jpg)
+![img](./237_f43409sg.jpg)
+![img](./237_787347sg.jpg)
+![img](./237_787362p0.jpg)
+![img](./237_ff862cim.jpg)
+![img](./237_ab8888sg.jpg)
+![img](./237_42ac49sg.jpg)
+![img](./237_83cb03k5.jpg)
+
+----
+
+##### <span id="pid707115855">238.[0] \<pid:707115855\> 2023-08-05 14:34:35 by 凰羽轻歌</span>
+>[jump](#pid707015923) Kaekaekae(2023-08-04 23:10) 说: 
+>
+>贴一些我买过手办的帅哥![上](https://img4.nga.178.com/ngabbs/post/smile/ac2.png)
+>![img](./99_f2556cg0.jpg)
+>![img](./99_2329bars.jpg)
+>![img](./99_064a39hd.jpg)
+>[img]./mon_202308/04/l2Q2s-2ub6Z1gT3
+
+！爷爷！好伟大的一张脸![心](https://img4.nga.178.com/ngabbs/post/smile/ac23.png)
+
+----
+
+##### <span id="pid707117057">240.[0] \<pid:707117057\> 2023-08-05 14:42:30 by 凰羽轻歌</span>
+>[jump](#pid707011076) 唵嘛呢叭弥(2023-08-04 22:44) 说: 
+>
+>![img](./20_b7da15g7.jpg)
+
+好帅![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid707119874">241.[0] \<pid:707119874\> 2023-08-05 15:01:16 by yblc</span>
+最初喜欢的男人
+![img](./241_0c9d1esg.jpg)
+以前喜欢的角色
+![img](./241_4c6898ls.png)
+试图重新喜欢这个游戏的时候，但是现在再也不会接触的游戏
+![img](./241_2c38f0yu.png)
+![img](./241_df66ca40.png)
+
+----
+
+##### <span id="pid707120499">242.[0] \<pid:707120499\> 2023-08-05 15:05:27 by 灼空</span>
+![img](./242_dbfac5cs.jpg)![img](./242_1f4812qg.jpg)![img](./242_c01d6fcs.jpg)![img](./242_ee46d9cs.jpg)来看看我们的王还有我的刀![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
+
+----
+
+##### <span id="pid707122093">244.[0] \<pid:707122093\> 2023-08-05 15:16:08 by 被塞抹布后的小号</span>
+浅浅的发一下我那被米哈游毁了的推，希望你早日烂地里永远不要被米哈游那个B想起来![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
+![img](./244_bdcc09gs.jpg)![img](./244_7d82f8mw.jpg)![img](./244_a739b5mz.jpg)![img](./244_cafa2bh7.jpg)![img](./244_80afadns.jpg)![img](./244_a64260cs.jpg)![img](./244_0446c6sg.jpg)![img](./244_7b6aa5yi.jpg)![img](./244_95cdf6g0.png)![img](./244_2fa886sg.png)
+
+----
+
+##### <span id="pid707122788">245.[0] \<pid:707122788\> 2023-08-05 15:20:27 by 晓音requiem</span>
+这就不得不说我看完jo3哭了一晚上的花京院了
+和我目前见过的最帅的女人朱姐
+
+![img](./245_f41207sg.jpg)![img](./245_c7baf3j5.jpg)![img](./245_1b3f06sg.jpg)
+
+----
+
+##### <span id="pid707125921">246.[0] \<pid:707125921\> 2023-08-05 15:41:14 by xxxxttmm</span>
+存下最近打的游戏重刷的动漫什么的帅哥美女
+1.本所七大不可思议
+![img](./246_bad6dcqo.jpg)
+2.奇犽我最爱滴白毛小男孩![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
+![img](./246_9eb65du0.jpg)
+3.被小高拿捏在手里的，我在超侦探事件簿里的初恋老婆
+![img](./246_46ed15k0.jpg)
+4.老婆，可爱的塞尔达老婆![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+![img](./246_7e019exc.jpg)
+![img](./246_26768ek0.jpg)
+
+----
+
+##### <span id="pid707130366">247.[0] \<pid:707130366\> 2023-08-05 16:10:21 by 冷泠棱凌</span>
+>[jump](#pid707122788) 晓音requiem(2023-08-05 15:20) 说: 
+>
+>这就不得不说我看完jo3哭了一晚上的花京院典明了，不要被JOJO的画风吓到了他真的特别好一孩子
+>
+>![img](./245_f41207sg.jpg)
+>
+>迄今为止我见过的最帅的女人常守朱，朱姐A遍全天下，心理测量者前两季真的很不错
+>![img](./245_c7baf3j5.jpg)
+>
+>还有这位我曾经真的很喜欢很崇敬的一个角色，不说名字了基本都认识，哥们是个好人
+>[img]./mon_20
+
+推烟绯的人眼光都不会差！![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
+
+----
+
+##### <span id="pid707133546">248.[0] \<pid:707133546\> 2023-08-05 16:30:21 by Large-scale</span>
+>[jump](#pid707010103) Giovann(2023-08-04 22:39) 说: 
+>
+>![img](./7_956eaef9.jpg)
+>![img](./7_0758b1g0.jpg)
+>白术服设但凡改一改![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+老白服设改一改好滴是个美丽老蛇妖![舔](https://img4.nga.178.com/ngabbs/post/smile/a2_10.png)
+
+----
+
+##### <span id="pid707164785">249.[1] \<pid:707164785\> 2023-08-05 19:27:02 by liveriver</span>
+某个凉了的游戏里我的初恋女友，枫丹pv的时候一眼幻视![冷](https://img4.nga.178.com/ngabbs/post/smile/a2_16.png)
+
+![img](./249_503ee49k.jpg)
+![img](./249_2149269k.jpg)
+
+----
+
+##### <span id="pid707170615">250.[0] \<pid:707170615\> 2023-08-05 19:57:48 by 纪灵玥</span>
+![img](./250_0412e4cx.jpg)![img](./250_7dfd33cx.jpg)
+玉门师徒666
+
+----
+
+##### <span id="pid707172991">251.[0] \<pid:707172991\> 2023-08-05 20:07:09 by 等海人</span>
+海哥的脸是真的好看
+
+----
+
+##### <span id="pid707173904">252.[0] \<pid:707173904\> 2023-08-05 20:10:53 by 厌雪离</span>
+![img](./252_db23fdw0.jpg)
+
+----
+
+##### <span id="pid707174694">253.[0] \<pid:707174694\> 2023-08-05 20:14:36 by Cloudrapid133</span>
+老东西最喜欢的永远还是老东西
+
+![img](./253_ef351eg.jpeg)
+![img](./253_7ce9eag.jpeg)
+![img](./253_78a541g.jpeg)
+
+----
+
+##### <span id="pid707175757">254.[0] \<pid:707175757\> 2023-08-05 20:19:41 by 昆昆昆昆0v0</span>
+我的妻子和我的丈夫![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+(确实是同一个人)
+
+![img](./254_fcbed7pk.jpg)
+
+----
+
+##### <span id="pid707177595">256.[0] \<pid:707177595\> 2023-08-05 20:29:30 by 孤舟霓裳</span>
+>[jump](#pid707015269) 自由干饭人(2023-08-04 23:06) 说: 
+>
+>那我也来![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+>![img](./88_3ab400jg.jpg)![img](./88_ff47f4tm.jpg)![img](./88_53f779q0.jpg)![img](./88_a94495sg.jpg)
+
+怎么突然觉得这么幼啊……
+
+----
+
+##### <span id="pid707178051">257.[0] \<pid:707178051\> 2023-08-05 20:32:14 by 不离vvvv</span>
+![img](./257_a3cb24g0.jpg)![img](./257_374510g0.jpg)
+看看腾讯旗下某二次元美少女手游
+
+----
+
+##### <span id="pid707181288">258.[0] \<pid:707181288\> 2023-08-05 20:51:29 by 远见者的叹息</span>
+![img](./258_9f8330xc.jpg)
+![img](./258_eea12dg0.jpg)
+![img](./258_c182d7u0.jpg)
+![img](./258_8bec16sg.jpg)
+![img](./258_14215dk0.jpg)
+喜欢美少女，存的不多
+
+----
+
+##### <span id="pid707193131">259.[0] \<pid:707193131\> 2023-08-05 21:57:06 by 冷泠棱凌</span>
+>[jump](#pid707177158) 神乐苍籁(2023-08-05 20:26) 说: 
+>
+>![img](./259_6f496bnx.jpg)
+>![img](./259_b68608sg.jpg)
+>![img](./259_0a2f05fy.jpg)
+>[img]./mon_202308/05/l2Q2s-1exkK27T3cSsg-fy.jpg.medium.jpg
+
+后面的是碧蓝幻想吧？是吧？
+之前在里版收的莉莉的立绘我还存着呢![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)又纯又涩，给我赛博牛子看嗯了简直![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+![img](./259_2fdfa7vm.jpg)
+
+----
+
+##### <span id="pid707193754">260.[0] \<pid:707193754\> 2023-08-05 21:59:20 by 冷泠棱凌</span>
+>[jump](#pid707164785) liveriver(2023-08-05 19:27) 说: 
+>
+>某个凉了的游戏里我的初恋女友，枫丹pv的时候一眼幻视![冷](https://img4.nga.178.com/ngabbs/post/smile/a2_16.png)
+>
+>![img](./260_1aa003u0.jpg)
+>![img](./260_6af4cfda.jpg)
+><span class="video"><video onplaying="videoPlay(event)" onplay="stopAudio()" src="https://img.nga.178.com/attachments/mon_202308/05/l2Q2s-fx6oXdZ3iT6wSig-ji.gif.mp4" class="videoSize" poster="https://img.nga.178.com/attachments/mon_202308/05/l2Q2s-fx6oXdZ3iT6wSig-ji.gif.mp4.thumb.jpg" webkit-playsinline controls autobuffer>浏览器不支持</video></span>
+>
+
+原来你也幻视了啊![自戳双目](https://img4.nga.178.com/ngabbs/post/smile/a2_28.png)不得不说黄豆姐的后背和手持伞真的很让我幻视大小姐，尤其是最近我还在过她的支线![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)
+
+----
+
+##### <span id="pid707194130">261.[0] \<pid:707194130\> 2023-08-05 22:00:52 by 冷泠棱凌</span>
+楼主又翻出一位一眼万年的美少女![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)虽然游戏做得垃圾但是立绘是真的好看啊![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
+![img](./261_027d73g.webp)
+
+----
+
+##### <span id="pid707196307">262.[0] \<pid:707196307\> 2023-08-05 22:09:11 by 迦勒底在逃员工</span>
+我还能说什么呢
+你存在我深深的脑海里* 老婆你就安心的去吧，希望以后剧情里不要再看到你，别怪我，我也是为了你好…但这张主线里夕阳下摸耳机的你我会反复品味真藏…老婆真棒…
+![img](./262_c4d083zk.jpg)
+![img](./262_bbdfdekj.jpg)
+![img](./262_b04d93kj.jpg)
+![img](./262_1b237cg4.gif)
+
+----
+
+##### <span id="pid707219035">264.[0] \<pid:707219035\> 2023-08-06 00:25:27 by 8991aiih</span>
+指挥使意外的多啊![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+那我也来几张个人比较喜欢的cg![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)
+![img](./264_bfb5b8ku.png)
+![img](./264_053b7dku.png)
+![img](./264_3ed22aku.png)
+![img](./264_1b4fedku.png)
+![img](./264_e870efku.png)
+![img](./264_8e5b2dku.png)
+![img](./264_bc62bfku.png)
+![img](./264_979650ku.png)
+![img](./264_f574e3ku.png)
+![img](./264_975c88ku.png)
+![img](./264_1e2272ku.png)
+
+----
+
+##### <span id="pid707219633">265.[0] \<pid:707219633\> 2023-08-06 00:30:04 by numb45</span>
+>[jump](#pid707009524) 早见初(2023-08-04 22:36) 说: 
+>
+>![img](./4_f8925dfz.jpg)
+>![img](./4_d9fdd0tq.jpg)
+>我美丽的妻子和女儿![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)  
+>丰宝你但凡立绘稍微修修我都不至于不忍心下你的池子(大哭)
+
+好久没玩，第一位是?![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid707221009">266.[0] \<pid:707221009\> 2023-08-06 00:40:42 by 8991aiih</span>
+>[jump](#pid707219633) numb45(2023-08-06 00:30)说:
+>[quote][pid=707009524,37261214,1]Reply[/pid] <b>Post by [uid=64660996]早见初[/uid] (2023-08-04 22:36):</b><br/><br/>[img]https://img.nga.178.com/attachments/mon_202308/04/l2Q2s-930cK2sT3cSsg-fz.jpg.medium.jpg[/img]<br/>[img]https://img.nga.178.com/attachments/mon_202308/04/l2Q2s-5x91Z1sT3cSjv-tq.jpg.medium.jpg[/img]<br/>我美丽的妻子和女儿[s:ac:哭1][s:ac:哭1][s:ac:哭1]  <br/>丰宝你但凡立绘稍微修修我都不至于不忍心下你的池子(大哭)[/quote]好久没玩，第一位是?[s:ac:喘]
+
+提丰，在第三个肉鸽表现相当优秀
+这位更是个肉鸽新宠儿![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707221572">267.[0] \<pid:707221572\> 2023-08-06 00:45:29 by 超定归约律</span>
+小男孩小女孩都来一点吧![img](./267_1dbc98f1.jpg)![img](./267_5dd667p6.jpg)![img](./267_0600d5op.jpg)
+
+----
+
+##### <span id="pid707223944">268.[0] \<pid:707223944\> 2023-08-06 01:06:21 by 转世成为乐子人</span>
+现任老婆![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)
+![img](./268_9582dbg0.jpg)
+
+----
+
+##### <span id="pid707224875">269.[0] \<pid:707224875\> 2023-08-06 01:14:58 by 紫0杰</span>
+![img](./269_72ae9cm8.jpg)
+
+《被大雨困在礁石上的女人》
+
+----
+
+##### <span id="pid707225276">270.[0] \<pid:707225276\> 2023-08-06 01:19:04 by wxkqb</span>
+数学家Hilbert，最伟大的数学家之一。
+![img](./270_7bf5f4b4.jpg)
+![img](./270_20bedab4.jpg)
+

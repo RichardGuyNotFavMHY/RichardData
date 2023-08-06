@@ -91,3 +91,27 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 可持续性竭泽而渔，新韭菜会自己长出来![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid707077257">13.[0] \<pid:707077257\> 2023-08-05 10:50:27 by 不淡定の文</span>
+>[jump](#pid707046397) ninesky1985(2023-08-05 05:46) 说: 
+>
+>其实令我震惊的是连0.98这种活都能岁月史书
+
+啊？怎么岁的，这也能岁？![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)
+
+----
+
+##### <span id="pid707077801">14.[0] \<pid:707077801\> 2023-08-05 10:53:33 by 二吸儿</span>
+mhy就一数典忘祖的??-货![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)
+
+----
+
+##### <span id="pid707078081">15.[0] \<pid:707078081\> 2023-08-05 10:55:04 by 罗一川</span>
+吹的都是不怎么玩的，那就让他们多吹呗
+
+----
+
+##### <span id="pid707078234">16.[0] \<pid:707078234\> 2023-08-05 10:55:49 by tmp216</span>
+仙不一定是你米玩家，尤其是今年的
+

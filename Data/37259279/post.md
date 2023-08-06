@@ -821,3 +821,17 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid707051167">105.[0] \<pid:707051167\> 2023-08-05 07:36:07 by Rgaa</span>
 我只能说，2.2阴阳寮是他最好的剧情。不过一个执行官，一直被垫，难蚌
 
+----
+
+##### <span id="pid707111304">106.[0] \<pid:707111304\> 2023-08-05 14:05:45 by うみです</span>
+>[jump](#pid707031429) 庚万迟丁谢聂(2023-08-05 00:49) 说: 
+>
+>对啊，魈，甘雨那里。像前面谭友说的，盐花里岩神死了还爆了那么大动静，摩拉克斯从天上掉下来死了怎么怀疑一下呢。还是说他们没见过魔神死亡呢
+
+魈应该提前知道了，但是甘雨![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)傻乎乎的很安心
+
+----
+
+##### <span id="pid707168524">107.[0] \<pid:707168524\> 2023-08-05 19:47:08 by liveriver</span>
+发散一下，公子和钟离一起up算不算买公钟cp![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

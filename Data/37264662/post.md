@@ -19,3 +19,25 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid707068516">2.[0] \<pid:707068516\> 2023-08-05 09:58:48 by ayainchaos</span>
 弹幕味道非常纯，昨天sj理查的人已经把音乐话题加入列表了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid707070434">3.[0] \<pid:707070434\> 2023-08-05 10:10:51 by EWSCHNEE</span>
+看了一下，感觉比较好的就下水道了
+其他主城真不如隔壁星铁
+水下看起来就像须弥雨林泡水了一样。
+水下玩法可能初见鲜，但一想到有一半的时间是这种内容。。。。。。
+
+----
+
+##### <span id="pid707071100">4.[0] \<pid:707071100\> 2023-08-05 10:15:09 by lolireactor</span>
+特大喜讯：枫丹合成台旁边没有NPC
+
+----
+
+##### <span id="pid707076581">5.[0] \<pid:707076581\> 2023-08-05 10:46:45 by music2212345</span>
+>[jump](#pid707071100) lolireactor(2023-08-05 10:15) 说: 
+>
+>特大喜讯：枫丹合成台旁边没有NPC
+
+这么大的更新吗，那还真是感恩戴德
+

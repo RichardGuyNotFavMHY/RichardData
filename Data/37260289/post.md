@@ -215,3 +215,17 @@ TMD这个破公司就一点也不想让玩家顺心！！
 
 什么时候亖啊！![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)
 
+----
+
+##### <span id="pid707088620">34.[0] \<pid:707088620\> 2023-08-05 11:52:54 by 神乐苍籁</span>
+>[jump](#pid706992200) 可恶，长个锤子(2023-08-04 21:13) 说: 
+>
+>![img](./5_2c4522qo.jpg)我放一张原图在这里，主要是按自己审美改的![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)是真的受不了秃头大圆脸……
+
+这个脸没改之前甚至给我一种五官在乱飞的错觉…![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)
+
+----
+
+##### <span id="pid707092097">35.[0] \<pid:707092097\> 2023-08-05 12:12:30 by 景邀明</span>
+妙手回春啊锤大夫![干杯](https://img4.nga.178.com/ngabbs/post/smile/a2_54.png)
+

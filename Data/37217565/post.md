@@ -272,3 +272,12 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 下年生日。
 笑不出来，芭芭和班班都是我的翅膀![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
 
+----
+
+##### <span id="pid707248098">36.[0] \<pid:707248098\> 2023-08-06 08:46:21 by renjianhualaozi</span>
+>[jump](#pid706273225) endhdhdh(2023-08-01 16:45) 说: 
+>
+>照这么说只要把班尼特免费送一个就可以削了啊![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+
+4.0送班尼特了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

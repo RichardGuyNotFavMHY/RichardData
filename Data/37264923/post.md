@@ -47,3 +47,35 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid707068584">6.[0] \<pid:707068584\> 2023-08-05 09:59:14 by Elleece</span>
 我以为你想从物理方面讲讲老欧洲的卫生情况和排水系统，原来是讲游戏啊，那没事了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 
+----
+
+##### <span id="pid707097842">7.[0] \<pid:707097842\> 2023-08-05 12:46:22 by 亦有余央</span>
+>[jump](#pid707068119) beatles05(2023-08-05 09:56) 说: 
+>
+>最恶心的是两个小男孩都配了探索天赋，一个找特产，一个减体力消耗，真就神父强推是吧![茶](https://img4.nga.178.com/ngabbs/post/smile/ac39.png)
+
+没事，枫丹也不用怎么抽卡，用不上![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707099068">8.[0] \<pid:707099068\> 2023-08-05 12:53:04 by 无意识koishi</span>
+想舒服去玩老游戏警告
+不想看午餐肉去上黄网啊警告
+市长对小男孩这种见得多了警告![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid707099974">9.[0] \<pid:707099974\> 2023-08-05 12:58:25 by 午餐肉批发</span>
+已经想到还在玩的日常委托在水里游来游去的血压了![吻](https://img4.nga.178.com/ngabbs/post/smile/ac9.png)
+
+----
+
+##### <span id="pid707100297">10.[0] \<pid:707100297\> 2023-08-05 13:00:20 by 青春派洛笛</span>
+无所谓，早就不玩大世界了![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)就看4.0孝子们怎么吹了
+
+----
+
+##### <span id="pid707104774">11.[0] \<pid:707104774\> 2023-08-05 13:26:26 by 5151208</span>
+说起来原神策划一个脑残行为就是把游戏机制个某种角色绑定，就是不出平替，不喜欢该角色的人怎么办，一定要镍币抽一个是吧？
+不愧是发明了镍币人概念的原神![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

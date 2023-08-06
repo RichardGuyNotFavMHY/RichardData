@@ -120,3 +120,9 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid707069597">20.[0] \<pid:707069597\> 2023-08-05 10:05:46 by 水煮鱼超好吃</span>
 ![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)上次看到泥潭有人说米给陈老师硬塞了一堆不认识的米员工而且还不听话，好像和上面说的“合作”对上了哟
 
+----
+
+##### <span id="pid707070218">21.[0] \<pid:707070218\> 2023-08-05 10:09:31 by 斯特拉神斯</span>
+没有署名
+![img](./21_c683dfqa.png)
+

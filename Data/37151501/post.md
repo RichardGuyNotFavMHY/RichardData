@@ -857,3 +857,107 @@ Fate系美强惨可太多了![哭笑](https://img4.nga.178.com/ngabbs/post/smile
 ##### <span id="pid707052395">91.[0] \<pid:707052395\> 2023-08-05 07:51:39 by KingreyShawn</span>
 居然能看到传说系列，看到达奥斯我一阵恍惚
 
+----
+
+##### <span id="pid707075405">92.[0] \<pid:707075405\> 2023-08-05 10:40:17 by Surrea</span>
+>[jump](#pid705146406) 不见浅栗(2023-07-27 07:25):
+
+加强了30充![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707076156">93.[0] \<pid:707076156\> 2023-08-05 10:44:30 by ei0626721521</span>
+>[jump](#pid705157719) 关闭网页(2023-07-27 08:51) 说: 
+>
+>火子哥美吗？道诡因为文笔问题我实在看不下去，只知道火子哥确实很癫很惨![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+设定上是俊道士![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)不过他经常没脸没皮(物理)也无所谓了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707076537">94.[0] \<pid:707076537\> 2023-08-05 10:46:35 by Surrea</span>
+热评已经把我想说的都说了，只能说叉老师也喜欢迦尔纳真是太好了，能看到叉老师笔下的他的一生真是太好了![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+----
+
+##### <span id="pid707076826">95.[0] \<pid:707076826\> 2023-08-05 10:48:10 by ei0626721521</span>
+顺便蹲蹲有无人给推荐点女角色助我脱坑，啥作品都行，有适合同人g向发挥的土壤就好![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+----
+
+##### <span id="pid707077512">96.[0] \<pid:707077512\> 2023-08-05 10:51:47 by _Aheng</span>
+叉老师更更![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+----
+
+##### <span id="pid707077582">97.[0] \<pid:707077582\> 2023-08-05 10:52:10 by xmkz798</span>
+>[jump](#pid707044461) 女武神の犹大(2023-08-05 04:18) 说: 
+>
+>美强惨我只能想到杀生丸![img](./85_3283bd31.png)
+>看得少，我也不是美强惨受众
+>杀生丸应该完美符合美和强，惨不清楚，犬夜叉没看完(
+
+杀生丸的逼格再怎么也没沦落到惨的时候![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)吃的最大的瘪也就躺小树林那次了，还赚了个老婆回来
+
+----
+
+##### <span id="pid707084513">98.[0] \<pid:707084513\> 2023-08-05 11:30:05 by 不见浅栗</span>
+>[jump](#pid707075405) Surrea(2023-08-05 10:40)说:
+><b>Reply to [pid=705146406,37151501,2]Reply[/pid] Post by [uid=60743887]不见浅栗[/uid] (2023-07-27 07:25)</b><br/>加强了30充[s:ac:哭笑]
+
+看见了，能上班了![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)八周年pv小太阳宝具展开那一段真不错![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)
+
+~~昨天五星术，梅林又又又又又又又没强化，躺了~~![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707085389">99.[0] \<pid:707085389\> 2023-08-05 11:34:59 by 晏安之花</span>
+聊霹我就不困了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)让我一眼荡魂的入坑的就是绮罗生~~后来麦麸我实在不喜欢没爱了~~
+
+----
+
+##### <span id="pid707085572">100.[0] \<pid:707085572\> 2023-08-05 11:36:05 by MYXYX</span>
+>[jump](#pid705153027) 霜糖点点(2023-07-27 08:24) 说: 
+>
+>没看过，但是我想询问一下这是他的技能吗？？？(刚百度回来)
+>我大受震撼。作者什么精神状态啊啊啊
+>
+>![img](./30_8ada162i.jpg)
+
+要不要去看看这作者的另外一本书诡秘地海的主角啊。美不美不知道，但惨是真的惨。![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid707086172">101.[0] \<pid:707086172\> 2023-08-05 11:39:33 by 311jam</span>
+>[jump](#pid705138026) fealib(2023-07-27 02:54) 说: 
+>
+>最近有位角色极大的拔高了美强惨的上限，导致了很多作者写美强惨角色变得很艰难了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>他就是——李火旺。
+>
+>你游和隔壁游力推的美强惨太子，敢碰瓷这位么？
+
+诡道真有这么好看吗![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+最近越来越好奇了
+
+----
+
+##### <span id="pid707086219">102.[0] \<pid:707086219\> 2023-08-05 11:39:52 by lien11</span>
+啊啊啊小太阳终于把25自充强化了![哭](https://img4.nga.178.com/ngabbs/post/smile/ac13.png)恭喜小太阳好多年了![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+
+----
+
+##### <span id="pid707231473">103.[0] \<pid:707231473\> 2023-08-06 02:45:48 by 玻颂</span>
+>[jump](#pid705138026) fealib(2023-07-27 02:54) 说: 
+>
+>最近有位角色极大的拔高了美强惨的上限，导致了很多作者写美强惨角色变得很艰难了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>他就是——李火旺。
+>
+>你游和隔壁游力推的美强惨太子，敢碰瓷这位么？
+
+这玩意儿走的可不是寻常路，毕竟一般美强惨都默认思虑深重和高智商![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
+
+----
+
+##### <span id="pid707249752">104.[0] \<pid:707249752\> 2023-08-06 09:00:50 by 千叶叶</span>
+喜欢小太阳是仙品的![赞同](https://img4.nga.178.com/ngabbs/post/smile/ac42.png)退坑前最喜欢的英灵之一，从此也对太阳属性有了特殊爱好![怕](https://img4.nga.178.com/ngabbs/post/smile/ac26.png)
+

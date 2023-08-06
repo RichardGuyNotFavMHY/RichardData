@@ -157,3 +157,79 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 
 那种事情不要啊![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)恐慌起来了
 
+----
+
+##### <span id="pid707080981">24.[0] \<pid:707080981\> 2023-08-05 11:10:24 by andreblack</span>
+和现在这些贵物相比达达鸭可以说眉清目秀了
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707082003">25.[0] \<pid:707082003\> 2023-08-05 11:16:03 by 雾祈心</span>
+公子出来我眼前一亮![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)感觉呼吸都轻松了
+
+----
+
+##### <span id="pid707082095">26.[0] \<pid:707082095\> 2023-08-05 11:16:35 by YVANLAU</span>
+唉，璃月人永远的三无复刻
+
+----
+
+##### <span id="pid707082337">27.[0] \<pid:707082337\> 2023-08-05 11:18:02 by Inquisit</span>
+你们先把剧情看了吧 他是来做小丑做垫子还是炒cp都说不准呢
+
+----
+
+##### <span id="pid707082440">28.[0] \<pid:707082440\> 2023-08-05 11:18:37 by 培根少年</span>
+![img](./28_3283bd31.png)准备给小号也抽一只0命鸭了
+
+----
+
+##### <span id="pid707083328">29.[0] \<pid:707083328\> 2023-08-05 11:23:33 by 铃兰不开</span>
+只看pv最想抽的是那俩跳舞的原魔，可能是我没什么老玩家滤镜吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707085183">30.[0] \<pid:707085183\> 2023-08-05 11:33:52 by minthoney</span>
+感觉芙芙应该是个让人怜爱的角色~~有点怕~~
+最期待的应该是苹果姐结果好像甚至没出声![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
+公子要不来个邪眼皮肤吧……![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)
+
+----
+
+##### <span id="pid707086150">31.[1] \<pid:707086150\> 2023-08-05 11:39:27 by 白与懿</span>
+等等我看到你的总结我才想起来，我仆人呢？？？？![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)居然4.0还没她戏份啊![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+希望仆人和鸭鸭在枫丹谁也不要垫谁吧……喜欢成男成女是我的错(祈祷nia![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png))
+
+----
+
+##### <span id="pid707086938">32.[0] \<pid:707086938\> 2023-08-05 11:43:52 by 巳向甄癸贾明</span>
+本来就没几个想抽的 被公子一衬托完更不想抽了![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)
+
+----
+
+##### <span id="pid707087651">33.[1] \<pid:707087651\> 2023-08-05 11:47:45 by 哒哒块</span>
+出个sp雷公子得了，老模型外观还是在线的
+
+----
+
+##### <span id="pid707089142">34.[0] \<pid:707089142\> 2023-08-05 11:55:47 by 向日葵之梦</span>
+>[jump](#pid707018423) 透明级(2023-08-04 23:23) 说: 
+>
+>先别急着想抽，虽然我情绪最高涨的时候也是看到公子跳出来时
+>但是听哥们一席话吧，先把剧情看了
+>3.3先手抽散兵的痛
+
+4.0上半开剧情 下半才up公子 到时候听听风评就行
+而且他1.1就实装了 4.0要是爆了 前面三次up抽了的人也会陪着一起当小丑的![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707212938">35.[0] \<pid:707212938\> 2023-08-05 23:41:56 by RUIiii_w</span>
+整个4.0PV的最成功之处：坚定了我抽公子怨种命座的心。怎么做到新角色还没糟糠妻(无贬义)来的有感觉？
+
+----
+
+##### <span id="pid707223432">36.[0] \<pid:707223432\> 2023-08-06 01:01:10 by 莫莫宵</span>
+![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)难说 强制荒芒的队伍第一个爆金币的就是死体系万达
+

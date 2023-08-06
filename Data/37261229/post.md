@@ -154,3 +154,34 @@ CD112.5秒，公子：真TM烦.jpg![哭笑](https://img4.nga.178.com/ngabbs/post
 
 我怀疑真实剧情多剪一秒就露馅，毕竟pv欺诈不是一天两天了
 
+----
+
+##### <span id="pid707251696">20.[0] \<pid:707251696\> 2023-08-06 09:16:23 by 无意识koishi</span>
+都不用水神
+放两个op属性小怪
+公子就跟黄毛一样躺地上了![闪光](https://img4.nga.178.com/ngabbs/post/smile/ac43.png)
+
+----
+
+##### <span id="pid707254072">21.[0] \<pid:707254072\> 2023-08-06 09:34:56 by nkd_sk</span>
+笔在别人手上。![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707254151">22.[0] \<pid:707254151\> 2023-08-06 09:35:37 by 秘密首领</span>
+>[jump](#pid707008211) 银霭鸢尾花(2023-08-04 22:29) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)收手吧公子，对面给你上个迟滞之水就歇逼了……
+
+迟滞之水？op机制，启动！![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707256224">23.[0] \<pid:707256224\> 2023-08-06 09:50:33 by 这个西瓜好甜</span>
+PV公子出现的时候我就觉得再多拍两秒他就要被打倒然后吃瘪了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707258327">24.[0] \<pid:707258327\> 2023-08-06 10:04:38 by shumian65581</span>
+没准米哈游编剧深得尾田老师真传，主角辛辛苦苦一路战力狂掉，公子只需要后台挂机就依旧可以和主角55开![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

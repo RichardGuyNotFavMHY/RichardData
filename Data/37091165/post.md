@@ -503,3 +503,49 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid705906903">82.[0] \<pid:705906903\> 2023-07-30 21:58:00 by 雷滔137</span>
 1看不到了![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)
 
+----
+
+##### <span id="pid707191324">83.[0] \<pid:707191324\> 2023-08-05 21:49:45 by WindsK1245</span>
+1看不到了，大佬有没有兴趣在这个帖子里补一下
+
+----
+
+##### <span id="pid707193194">84.[0] \<pid:707193194\> 2023-08-05 21:57:20 by 银银银弦</span>
+哈哈哈哈哈哈哈哈哈哈哈哈天才，你配!![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)![lucky](https://img4.nga.178.com/ngabbs/post/smile/a2_13.png)
+
+----
+
+##### <span id="pid707205430">85.[0] \<pid:707205430\> 2023-08-05 22:55:05 by Vtrain</span>
+![喷](https://img4.nga.178.com/ngabbs/post/smile/ac18.png)太乐了，而且我大多都看懂了，看来我已经变成理查的模样
+
+----
+
+##### <span id="pid707207374">86.[0] \<pid:707207374\> 2023-08-05 23:06:42 by HuoHuohei</span>
+建议转到表世界，在这15天就没了
+
+----
+
+##### <span id="pid707228206">87.[0] \<pid:707228206\> 2023-08-06 01:55:06 by 凉拌小香菜</span>
+不是，已知这个帽皇其实是林尼假扮的，而他在杀掉队长后依旧表示晚上回家要让老婆岁一岁，那么典王到底是谁的老婆？！这怎么还带ntr元素呢？！![自戳双目](https://img4.nga.178.com/ngabbs/post/smile/a2_28.png)![自戳双目](https://img4.nga.178.com/ngabbs/post/smile/a2_28.png)
+
+----
+
+##### <span id="pid707236486">90.[0] \<pid:707236486\> 2023-08-06 04:50:15 by distaling</span>
+嘴要笑裂了。
+虚假的卖梗电商，真正的卖梗电商.jpg
+
+----
+
+##### <span id="pid707236606">91.[0] \<pid:707236606\> 2023-08-06 04:54:54 by xmkz798</span>
+好好好好好好好好好好![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid707236856">92.[0] \<pid:707236856\> 2023-08-06 05:04:51 by 雲玩家かみかぜ</span>
+要是能在游戏里复现就好了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707237128">93.[0] \<pid:707237128\> 2023-08-06 05:17:11 by 糖棠塘溏</span>
+最后你有沟笑喷了。楼主真是大文豪
+

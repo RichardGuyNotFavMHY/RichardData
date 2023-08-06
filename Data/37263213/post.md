@@ -43,3 +43,8 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 我TM是就来吃饭的，你说这些关我屁事![你这种人…](https://img4.nga.178.com/ngabbs/post/smile/a2_49.png)
 不过也别着急，等4.0开了后面的大菜会一个一个端上来的，我绝对相信米哈游的文案水平，枫丹绝对爆炸，各种意义的![你看看你](https://img4.nga.178.com/ngabbs/post/smile/a2_25.png)
 
+----
+
+##### <span id="pid707090110">5.[0] \<pid:707090110\> 2023-08-05 12:01:11 by 不淡定の文</span>
+来里版洗地的全是谜语人给我看乐了，这业务水平真的没谁了![偷笑](https://img4.nga.178.com/ngabbs/post/smile/ac4.png)
+

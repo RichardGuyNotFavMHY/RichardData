@@ -262,3 +262,130 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 逆水寒里个个都会起飞，那不是个个都像()？
 别这样嘛![委屈](https://img4.nga.178.com/ngabbs/post/smile/ac22.png)
 
+----
+
+##### <span id="pid707071825">43.[0] \<pid:707071825\> 2023-08-05 10:19:35 by ThedesAlizes</span>
+一觉起来看完大家的评论感觉好多了![羞](https://img4.nga.178.com/ngabbs/post/smile/ac36.png)就是我纠结得更厉害了![哭1](https://img4.nga.178.com/ngabbs/post/smile/ac14.png)
+我感觉轻功并不像，而且逆水寒能飞好久，阿赔那能飞多远啊费拉不堪的
+
+----
+
+##### <span id="pid707072068">44.[0] \<pid:707072068\> 2023-08-05 10:21:05 by Inquisit</span>
+>[jump](#pid707064144) cbzmxx(2023-08-05 09:29) 说: 
+>
+>还好我是没人要的血河
+
+血河大帝现在是内城大爹，会玩的那种伤害看不懂![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707072440">45.[1] \<pid:707072440\> 2023-08-05 10:23:12 by 奈何断桥</span>
+评价为3÷414，荒芒?也和荒芒一样可以到处ky
+
+----
+
+##### <span id="pid707073288">46.[0] \<pid:707073288\> 2023-08-05 10:28:04 by 七月七寄</span>
+>[jump](#pid707071825) ThedesAlizes(2023-08-05 10:19)说:
+>一觉起来看完大家的评论感觉好多了[s:ac:羞]就是我纠结得更厉害了[s:ac:哭1]<br/>我感觉轻功并不像，而且逆水寒能飞好久，阿赔那能飞多远啊费拉不堪的
+
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)拿赔钱货跟大轻功比属实是辱大轻功了，赔宝爬座山都得歇好几次呢
+
+----
+
+##### <span id="pid707073549">47.[0] \<pid:707073549\> 2023-08-05 10:29:37 by xmkz798</span>
+神相怎么你了！![抓狂](https://img4.nga.178.com/ngabbs/post/smile/ac29.png)
+
+----
+
+##### <span id="pid707073933">48.[0] \<pid:707073933\> 2023-08-05 10:31:58 by ffkhsyh</span>
+>[jump](#pid707064144) cbzmxx(2023-08-05 09:29) 说: 
+>
+>还好我是没人要的血河
+
+血河太吃打造了，打造好的能比其他伤害高一倍
+
+----
+
+##### <span id="pid707073982">49.[0] \<pid:707073982\> 2023-08-05 10:32:16 by 栉枝实乃梨喵</span>
+md，神相玩家沾shi了
+
+----
+
+##### <span id="pid707076347">50.[1] \<pid:707076347\> 2023-08-05 10:45:30 by EIVAAAA</span>
+别碰我神相好吗？这根本就是毫无来由的碰瓷，只会恶心人而已。![擦汗](https://img4.nga.178.com/ngabbs/post/smile/ac31.png)
+
+----
+
+##### <span id="pid707076670">51.[0] \<pid:707076670\> 2023-08-05 10:47:15 by Seebird</span>
+>[jump](#pid707064277) 七月七寄(2023-08-05 09:30) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)现在转生还来得及，碎梦和神相打舞阳各有优劣
+>神相他好就好在远程法师可以安逸站撸，我们碎梦...碎梦要强度有机制！
+>90评价过了不谈了
+>想起来了，90碎梦都是灭门职业，我在等开转职转去弹琴了
+
+碎梦还能啃神相皮鼓![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707076966">52.[0] \<pid:707076966\> 2023-08-05 10:48:57 by baiyefuxue</span>
+什么鬼，神相和散兵完全就不像![汗](https://img4.nga.178.com/ngabbs/post/smile/ac34.png)也别看个能走a的就说像散兵吧，真成玩原神玩的了
+
+----
+
+##### <span id="pid707077354">53.[0] \<pid:707077354\> 2023-08-05 10:50:57 by 碳烤阿苏拉</span>
+就硬蹭，赔解是懂怎么恶心人的，神相目前还是大爹呢
+
+----
+
+##### <span id="pid707077530">54.[0] \<pid:707077530\> 2023-08-05 10:51:52 by 蛀牙先生直呼内行</span>
+还好我早润血河了，浅浅心疼一下被这么比喻的神相玩家![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707077714">55.[0] \<pid:707077714\> 2023-08-05 10:53:00 by 汀上白沙_</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)草，昨天刚创号选的就是神相
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)但是我觉得神相更像jjj的长歌门啊
+
+----
+
+##### <span id="pid707078289">56.[0] \<pid:707078289\> 2023-08-05 10:56:06 by 栗林里莉</span>
+那倒也不必如此……
+实在不行来玩我们帅得雅痞腰细腿长~~上下限差距极大~~的血河![计划通](https://img4.nga.178.com/ngabbs/post/smile/ac41.png)
+
+----
+
+##### <span id="pid707081848">57.[0] \<pid:707081848\> 2023-08-05 11:15:11 by mnbvlkjh4</span>
+>[jump](#pid707077714) 汀上白沙_(2023-08-05 10:53) 说: 
+>
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)草，昨天刚创号选的就是神相
+>![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)但是我觉得神相更像jjj的长歌门啊
+
+我也觉得![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707082786">58.[0] \<pid:707082786\> 2023-08-05 11:20:27 by 铃兰不开</span>
+你喜欢滑就滑好了，还把狗屎甩别的游戏职业身上，有些人从原神跑路了也改不了狗习性
+
+----
+
+##### <span id="pid707083085">59.[0] \<pid:707083085\> 2023-08-05 11:22:03 by tbiph9277</span>
+要不看看我们碎梦![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)又帅又美![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707097992">60.[0] \<pid:707097992\> 2023-08-05 12:47:11 by 被暗算的第一天</span>
+逆水寒人人都能大轻功，太子窜那一小段也能叫飞？
+
+----
+
+##### <span id="pid707100959">61.[0] \<pid:707100959\> 2023-08-05 13:04:16 by 予晞</span>
+啥呀，你这么说素问还有技能可以浮空在上面打呢，而且神相这游戏里是控制位脆皮一般第一个被集火死的
+
+----
+
+##### <span id="pid707102134">62.[0] \<pid:707102134\> 2023-08-05 13:10:51 by 玩c罗玩的</span>
+![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)多年前端游玩的神相 确实有吹风的技能
+现在都能浮空了？
+

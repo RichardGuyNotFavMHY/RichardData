@@ -76,3 +76,20 @@ qq音乐啊
 ##### <span id="pid707068035">9.[0] \<pid:707068035\> 2023-08-05 09:55:44 by Khris2456</span>
 昨天一听就知道结束了![哭](https://img4.nga.178.com/ngabbs/post/smile/a2_17.png)
 
+----
+
+##### <span id="pid707071197">10.[0] \<pid:707071197\> 2023-08-05 10:15:46 by gtgce</span>
+欢宴pv出来的时候，我会说仆人那段是枫丹旋律
+现在我会觉得，那好像真有可能是愚人众的
+
+听过枫丹地区bgm就觉得，跟足迹的旋律完全不是一个风格，足迹那段反倒是“突兀”的那个![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707075353">11.[0] \<pid:707075353\> 2023-08-05 10:39:57 by fgfdfk</span>
+>[jump](#pid707058390) astonishkwon(2023-08-05 08:48) 说: 
+>
+>之前脉脉上就有原神的美工抱怨xxn策划为了逼他们改角色都自学建模了，现在估计这帮姑娘们又自学五线谱了吧![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+但是猛子哥是xxn(an)![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

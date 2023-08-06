@@ -161,3 +161,30 @@ cy![羡慕](https://img4.nga.178.com/ngabbs/post/smile/ac37.png)
 看动画以为是4字歌蕾蒂娅那种
 结果脸圆的和中野五月这个吔包八嘎一样
 
+----
+
+##### <span id="pid707071862">25.[0] \<pid:707071862\> 2023-08-05 10:19:53 by 脖子右拧好兄弟</span>
+脸太圆了，鼻子又太小，遮住右眼后整就一个大饼脸
+
+----
+
+##### <span id="pid707140065">26.[0] \<pid:707140065\> 2023-08-05 17:10:07 by 三明サワノ</span>
+>[jump](#pid707008994) 路过的炀(2023-08-04 22:33):
+
+高低得叫声学姐好![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
+----
+
+##### <span id="pid707141993">27.[0] \<pid:707141993\> 2023-08-05 17:20:58 by 柏Cheung</span>
+<div class="foldBox no"><div class="collapse_btn"><a href="javascript:;" onclick="collapse(this);">+</a>点击更改记忆![有何贵干 ...</div><span class="collapse_content" id="foldCnt">](https://img4.nga.178.com/ngabbs/post/smile/)![img](./27_bcbbbbr8.jpg)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)![doge](https://img4.nga.178.com/ngabbs/post/smile/a2_27.png)</span></div>
+
+----
+
+##### <span id="pid707145440">28.[0] \<pid:707145440\> 2023-08-05 17:42:02 by 柯蒂丽娅</span>
+>[jump](#pid707069355) bishoujo！！！(2023-08-05 10:04) 说: 
+>
+>看动画以为是4字歌蕾蒂娅那种
+>结果脸圆的和中野五月这个吔包八嘎一样
+
+你别说，歌蒂皮肤脸也圆，这下对上了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+

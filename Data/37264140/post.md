@@ -115,3 +115,60 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid707067264">15.[0] \<pid:707067264\> 2023-08-05 09:50:33 by ky446</span>
 ![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)竞速区都是收钱的，那些烤肉、二创、锐评什么的就不用多说了吧
 
+----
+
+##### <span id="pid707080348">16.[0] \<pid:707080348\> 2023-08-05 11:07:04 by 叶红月</span>
+水世界 海陆空 脑子呢
+
+----
+
+##### <span id="pid707081420">17.[0] \<pid:707081420\> 2023-08-05 11:12:42 by 钓鱼蛰</span>
+>[jump](#pid707059887) starsets(2023-08-05 08:59) 说: 
+>
+>这么一看ff14的海底部分不是完爆枫丹
+
+啊，我没看到原的海底
+如果真是这样的话，还是去ff14捕鱼好了，起码能坐自己喜欢的坐骑
+
+----
+
+##### <span id="pid707084357">18.[0] \<pid:707084357\> 2023-08-05 11:29:19 by MADAbāi</span>
+emmm问一下，所有地区游泳都不要体力了还是只有枫丹
+
+----
+
+##### <span id="pid707087021">19.[0] \<pid:707087021\> 2023-08-05 11:44:22 by 哒哒块</span>
+只玩原神导致的
+
+----
+
+##### <span id="pid707091559">20.[0] \<pid:707091559\> 2023-08-05 12:09:15 by 雲玩家かみかぜ</span>
+有钱赚就行，反正比给游戏花钱的强
+
+----
+
+##### <span id="pid707091708">21.[0] \<pid:707091708\> 2023-08-05 12:10:07 by 雲玩家かみかぜ</span>
+>[jump](#pid707067264) ky446(2023-08-05 09:50) 说: 
+>
+>![blink](https://img4.nga.178.com/ngabbs/post/smile/ac0.png)竞速区都是收钱的，那些烤肉、二创、锐评什么的就不用多说了吧
+
+二创本来就是官方花钱养的，这个一直都是明面上的
+
+----
+
+##### <span id="pid707091743">22.[0] \<pid:707091743\> 2023-08-05 12:10:22 by 雲玩家かみかぜ</span>
+>[jump](#pid707084357) MADAbāi(2023-08-05 11:29) 说: 
+>
+>emmm问一下，所有地区游泳都不要体力了还是只有枫丹
+
+枫丹
+
+----
+
+##### <span id="pid707093554">23.[0] \<pid:707093554\> 2023-08-05 12:20:49 by 大象的象子</span>
+>[jump](#pid707056001) keiyoku(2023-08-05 08:29) 说: 
+>
+>![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)![晕](https://img4.nga.178.com/ngabbs/post/smile/ac33.png)！！蹦起来那两寸高那是贴地飞行！![惊](https://img4.nga.178.com/ngabbs/post/smile/a2_19.png)
+
+近地悬浮![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)![黑枪](https://img4.nga.178.com/ngabbs/post/smile/ac44.png)
+

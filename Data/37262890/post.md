@@ -19,3 +19,23 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 很难的啦，纳税大户不好办啊，等m流水在腰斩一次文殊这个名头自然而然就下来了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
 4.0很有希望的
 
+----
+
+##### <span id="pid707102757">2.[0] \<pid:707102757\> 2023-08-05 13:14:24 by 戊商姜己靳姚</span>
+>[jump](#pid707034394) luhesong(2023-08-05 01:15) 说: 
+>
+>很难的啦，纳税大户不好办啊，等m流水在腰斩一次文殊这个名头自然而然就下来了![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+>4.0很有希望的
+
+所以我就是想看看这样来一波能不能加速一下这个过程甚至直接达成这个效果![偷吃](https://img4.nga.178.com/ngabbs/post/smile/a2_30.png)
+
+----
+
+##### <span id="pid707105303">3.[0] \<pid:707105303\> 2023-08-05 13:29:29 by Nimbus純水100</span>
+其实自从赔宝上线之后坛u已经扒了游戏内不少私货了，再结合赔解在国内外社交平台上蹿下跳的行径，当所谓文输的画皮被扯下来以后，一定会出来一个普林西普的
+
+----
+
+##### <span id="pid707105604">4.[0] \<pid:707105604\> 2023-08-05 13:31:16 by aswaw111</span>
+我tm还以为你说的二战那个天皇
+

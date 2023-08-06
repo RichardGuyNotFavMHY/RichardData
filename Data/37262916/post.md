@@ -63,3 +63,33 @@ Made by ngapost2md (c) ludoux [GitHub Repo](https://github.com/ludoux/ngapost2md
 ##### <span id="pid707066136">12.[0] \<pid:707066136\> 2023-08-05 09:43:19 by 南翎</span>
 你把那随手一涂叫沟啊？
 
+----
+
+##### <span id="pid707066678">13.[3] \<pid:707066678\> 2023-08-05 09:46:48 by 世事苍茫成云烟</span>
+>[jump](#pid0) 硫酸小檗碱(2023-08-05 01:12) 说: 
+>
+>我发现居然有沟![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)，挡来干嘛![img](./0_97cdb83c.jpg)![img](./0_8701467i.jpg)
+
+![img](./13_f92671g6.jpg)
+给你看看什么才叫有沟。
+就mhy拿笔给你画个直线也能叫有沟？原神把你扭曲成什么样了啊![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+----
+
+##### <span id="pid707140470">14.[0] \<pid:707140470\> 2023-08-05 17:12:28 by 三明サワノ</span>
+>[jump](#pid707066678) 世事苍茫成云烟(2023-08-05 09:46)说:
+>>[jump](#pid0) 硫酸小檗碱(2023-08-05 01:12) 说: 
+>>
+>>我发现居然有沟![瞎](https://img4.nga.178.com/ngabbs/post/smile/ac35.png)，挡来干嘛![img](./0_97cdb83c.jpg)![img](./0_8701467i.jpg)
+>
+>![img](./13_f92671g6.jpg)
+>给你看看什么才叫有沟。
+>就mhy拿笔给你画个直线也能叫有沟？原神把你扭曲成什么样了啊![呆](https://img4.nga.178.com/ngabbs/post/smile/ac10.png)
+
+还得是幻塔![喘](https://img4.nga.178.com/ngabbs/post/smile/ac17.png)
+
+----
+
+##### <span id="pid707143775">16.[0] \<pid:707143775\> 2023-08-05 17:31:12 by 仲夏月影</span>
+感觉不如隔壁大鸭鸭工牌![哭笑](https://img4.nga.178.com/ngabbs/post/smile/ac15.png)
+
